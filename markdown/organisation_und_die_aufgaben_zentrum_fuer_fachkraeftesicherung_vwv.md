@@ -1,0 +1,21 @@
+# VwV Zentrum für Fachkräftesicherung und Gute Arbeit
+
+Verwaltungsvorschriftdes Sächsischen Staatsministeriumsfür Wirtschaft, Arbeit und Verkehrüber die Organisation und die Aufgaben des Zentrums für Fachkräftesicherung und Gute Arbeit(VwV Zentrum für Fachkräftesicherung und Gute Arbeit – VwV ZEFAS)
+
+## VwV Zentrum für Fachkräftesicherung und Gute Arbeit I. Sitz, Fach- und Dienstaufsicht
+
+1. Das Zentrum für Fachkräftesicherung und Gute Arbeit (ZEFAS) ist eine nicht rechtsfähige Anstalt des öffentlichen Rechts im Geschäftsbereich des Staatsministeriums für Wirtschaft, Arbeit und Verkehr (SMWA). Es hat seinen Sitz in Chemnitz. 2. Das ZEFAS untersteht der Fach- und Dienstaufsicht des SMWA. 3. § 17 Absatz 1, 2 und 3 sowie § 18 des Sächsischen Verwaltungsorganisationsgesetzes vom 25. November 2003 (SächsGVBl. S. 899), das zuletzt durch Artikel 14 des Gesetzes vom 21. Mai 2021 (SächsGVBl. S. 578) geändert worden ist, bleiben unberührt. 
+## VwV Zentrum für Fachkräftesicherung und Gute Arbeit II. Aufgaben
+
+1. Das ZEFAS nimmt gemäß § 13 Absatz 2 Satz 4 des Sächsischen Verwaltungsorganisationsgesetzes als landesweite Beratungs-, Bündelungs- und Servicestelle Aufgaben der Fachkräftesicherung und Gestaltung guter Arbeitsbedingungen in folgenden Arbeitsschwerpunkten wahr: a) Arbeitsmarktbezogene Zuwanderung und Integration, b) Gute Arbeit und c) Berufliche Aus- und Weiterbildung. Das ZEFAS ergänzt die Angebote der gesetzlich zuständigen Akteure der Fachkräftesicherung und Guter Arbeit wie beispielsweise der Bundesagentur für Arbeit, der Industrie- und Handelskammern, der Handwerkskammern, der Gewerkschaften und Arbeitgeberverbände sowie von Projektträgern und privaten Akteuren. Es arbeitet eng mit diesen zusammen. Darüber hinaus informiert das ZEFAS durch eine breite Öffentlichkeitsarbeit zu den Themen der Fachkräftesicherung und der Gestaltung guter Arbeitsbedingungen. 2. Im Arbeitsschwerpunkt Arbeitsmarktbezogene Zuwanderung und Integration ist das ZEFAS zuständig für a) die Servicestelle Internationale Fachkräfte für Sachsen und b) die Unterstützung der beruflichen Integration in Sachsen lebender Migrantinnen und Migranten. 3. Im Arbeitsschwerpunkt Gute Arbeit ist das ZEFAS insbesondere zuständig für a) die Tarifvertragssammlung (Tarifregister) des Freistaates Sachsen und die damit verbundene Tarifauskunft nach den hierfür geltenden rechtlichen Maßgaben, b) die Beratung von kleinen, mittleren und Kleinstunternehmen sowie Beschäftigten bezüglich sicherer und gesunder Arbeitsbedingungen, c) die Bereitstellung von Informationen zur weiteren Stärkung der Attraktivität sächsischer Unternehmen als Arbeitgeber und Ausbilder und zu strategischer Personalarbeit, d) die Begleitung der Umsetzung der Fachkräftestrategie 2030 für den Freistaat Sachsen und ihrer Nachfolgestrategien einschließlich der Begleitung der Landesfachkräfteförderung. 4. Im Arbeitsschwerpunkt Berufliche Aus- und Weiterbildung ist das ZEFAS insbesondere zuständig für a) die Beratung von kleinen und mittleren Unternehmen, Weiterbildungsinteressierten und Weiterbildungsträgern zu Fragen der beruflichen Aus- und Weiterbildung sowie die Vermittlung an bereits vorhandene Beratungsstellen, b) die Herstellung von Transparenz auf dem beruflichen Aus- und Weiterbildungsmarkt hinsichtlich vorhandener Angebote und Förderinstrumente. 
+## VwV Zentrum für Fachkräftesicherung und Gute Arbeit III. Leitung des ZEFAS
+
+1. Die Leitung des ZEFAS sowie deren Vertretung werden vom SMWA bestellt. 2. Die Leiterin oder der Leiter ist Vorgesetzte oder Vorgesetzter der Mitarbeiterinnen und Mitarbeiter des ZEFAS sowie Dienstvorgesetzte oder Dienstvorgesetzter der dortigen Beamtinnen und Beamten. Ihr oder ihm obliegt die Verantwortung für die Erfüllung der unter Ziffer II genannten Aufgaben. Er oder sie ist dafür verantwortlich, dass die Dienstgeschäfte rechtzeitig, richtig und wirtschaftlich erledigt werden. 3. Die Leitung des ZEFAS regelt die Geschäftsverteilung und die Organisation des ZEFAS im Einvernehmen mit dem SMWA. 
+## VwV Zentrum für Fachkräftesicherung und Gute Arbeit IV. Inkrafttreten
+
+Diese Verwaltungsvorschrift tritt am Tag nach der Veröffentlichung in Kraft.
+
+Dresden, den 28. März 2022
+
+Der Staatsminister für Wirtschaft, Arbeit und VerkehrMartin Dulig
+

@@ -1,0 +1,34 @@
+# VO Ermittlungspersonen Staatsanwaltschaft
+
+Verordnung des Sächsischen Staatsministeriums der Justiz über die Ermittlungspersonen der Staatsanwaltschaft (VO Ermittlungspersonen Staatsanwaltschaft – VOErmPStA)
+
+## VO Ermittlungspersonen Staatsanwaltschaft § 1  Ermittlungspersonen der Staatsanwaltschaft
+
+(1) Die Angehörigen folgender Beamtengruppen sind Ermittlungspersonen der Staatsanwaltschaft:
+
+1. bei der Bundesfinanzverwaltung a) im Prüfungsdienst  aa) Oberregierungsräte,  bb) Regierungsoberräte,  cc) Regierungsräte,  dd) Zolloberamtsräte,  ee) Zollamtsräte,  sofern sie nicht Leiter einer selbständigen Dienststelle sind,  ff) Zollamtmänner,  gg) Zolloberinspektoren,  hh) Zollinspektoren, sofern sie ihre Laufbahnprüfung abgelegt haben und mindestens ein Jahr in einer der in dieser Verordnung bezeichneten Beamtengruppen tätig gewesen sind,  ii) Zollbetriebsinspektoren,  jj) Zollamtsinspektoren,  kk) Zollhauptsekretäre,  ll) Zollobersekretäre,  mm) Zollsekretäre,  die in den Doppelbuchstaben ll und mm Genannten nur, sofern sie mindestens vier Jahre in dem der Beamtengruppe entsprechenden Dienst oder im Polizeidienst des Bundes oder eines Landes tätig sind und das 21. Lebensjahr vollendet haben, b) in den Kontrolleinheiten der Hauptzollämter  aa) Regierungsdirektoren,  bb) Oberregierungsräte,  cc) Regierungsräte,  dd) Zolloberamtsräte,  ee) Zollamtsräte,  sofern sie nicht Leiter einer selbständigen Dienststelle sind,  ff) Zollamtmänner,  gg) Zolloberinspektoren,  hh) Zollinspektoren,  ii) Zollbetriebsinspektoren,  jj) Zollschiffsbetriebsinspektoren,  kk) Zollhauptsekretäre,  ll) Zollschiffshauptsekretäre,  mm) Zollobersekretäre,  nn) Zollschiffsobersekretäre,  oo) Zollsekretäre,  die in den Doppelbuchstaben mm bis oo Genannten nur, sofern sie mindestens vier Jahre in dem der Beamtengruppe entsprechenden Dienst oder im Polizeidienst des Bundes oder eines Landes tätig sind und das 21. Lebensjahr vollendet haben, c) im Zollfahndungsdienst  aa) Oberregierungsräte,  bb) Regierungsräte,  cc) Zolloberamtsräte,  dd) Zollamtsräte,  ee) Zollamtmänner,  ff) Zolloberinspektoren,  gg) Zollinspektoren,  hh) Zollbetriebsinspektoren,  ii) Zollhauptsekretäre,  jj) Zollobersekretäre,  kk) Zollsekretäre, 2. bei der Forst- und Jagdverwaltung des Bundes (Bundesanstalt für Immobilienaufgaben Sparte Bundesforst) a) Forstoberamtsräte, b) Forstamtsräte, c) Forstamtmänner, d) Forstoberinspektoren, e) Forstinspektoren, f) Forstamtsinspektoren, g) Forsthauptsekretäre, h) Forstobersekretäre, i) Forstsekretäre, j) Forstassistenten als Forstbetriebsbeamte im Außendienst, k) andere Bedienstete, die, ohne Beamte zu sein, Aufgaben einer der vorgenannten Beamtengruppen wahrnehmen, über eine qualifizierte forstfachliche Ausbildung verfügen, das 21. Lebensjahr vollendet haben und  aa) die Laufbahnprüfung abgelegt haben und die Aufgaben mindestens zwei Jahre lang wahrgenommen haben oder  bb) die Laufbahnprüfung nicht abgelegt haben und die Aufgaben mindestens vier Jahre lang wahrgenommen haben, die in den Buchstaben h bis j Genannten nur, sofern sie mindestens vier Jahre in dem der Beamtengruppe entsprechenden Dienst oder im Polizeidienst des Bundes oder eines Landes tätig sind und das 21. Lebensjahr vollendet haben; 3. bei der Polizei a) bei der Kriminalpolizei  aa) Erste Kriminalhauptkommissare,  bb) Kriminalhauptkommissare,  cc) Kriminaloberkommissare,  dd) Kriminalkommissare,  ee) Kriminalhauptmeister,  ff) Kriminalobermeister,  gg) Kriminalmeister, b) bei der Schutz-, Wasserschutz- und Bereitschaftspolizei  aa) Erste Polizeihauptkommissare,  bb) Polizeihauptkommissare,  cc) Polizeioberkommissare,  dd) Polizeikommissare,  ee) Polizeihauptmeister,  ff) Polizeiobermeister,  gg) Polizeimeister; 4. bei den Forstverwaltungen, der Jagd und den Fischereiverwaltungen des Freistaates Sachsen und den Körperschaften des öffentlichen Rechts a) in der Forstverwaltung und Jagd  aa) Forstamtsräte,  bb) Forstamtmänner,  cc) Forstoberinspektoren,  dd) Forstinspektoren  im forstlichen Revierdienst, b) in der Fischereiverwaltung  aa) Räte,  bb) Amtsräte,  cc) Amtmänner,  dd) Oberinspektoren,  ee) Inspektoren,  ff) Hauptsekretäre  im fischereiaufsichtsrechtlichen Dienst; 5. bei der Bergverwaltung a) Leitende Bergdirektoren, b) Bergdirektoren, c) Bergoberräte, sofern sie nicht Leiter einer selbständigen Dienststelle sind, d) Bergräte, e) Bergamtsräte, f) Bergamtmänner, g) Bergoberinspektoren, h) Berginspektoren am Sächsischen Oberbergamt.“ (2) Ermittlungspersonen der Staatsanwaltschaft sind auch diejenigen Bediensteten, die, ohne Beamte zu sein, die Aufgaben einer der in Absatz 1 genannten Beamtengruppen oder eines Ermittlungsbeamten der Zollfahndung wahrnehmen, sofern sie im öffentlichen Dienst stehen, das 21. Lebensjahr vollendet haben und mindestens vier Jahre in der bezeichneten Entgeltgruppe tätig sind.
+
+(3) Ermittlungspersonen der Staatsanwaltschaft sind ferner:
+
+1. Gemeindliche Vollzugsbedienstete im Rahmen der ihnen übertragenen polizeilichen Vollzugsaufgaben, sofern sie mindestens zwei Jahre im Dienst dieser Verwaltung tätig sind und das 21. Lebensjahr vollendet haben; 2. Bedienstete, die mit der Lebensmittel- und Preisüberwachung im Außendienst beschäftigt sind, sofern sie mindestens zwei Jahre im Dienst dieser Verwaltung tätig sind und das 21. Lebensjahr vollendet haben; 3. Bedienstete der Steuerfahndungsstellen, die, ohne Beamte zu sein, die Aufgaben eines Beamten des Steuerfahndungsdienstes wahrnehmen, sofern sie im öffentlichen Dienst stehen, das 21. Lebensjahr vollendet haben und mindestens zwei Jahre in der bezeichneten Entgeltgruppe tätig sind. (4) Ermittlungspersonen der Staatsanwaltschaft sind auch die in einem anderen Bundesland als Ermittlungspersonen der Staatsanwaltschaft bezeichneten Bediensteten, soweit sie berechtigt sind, im Freistaat Sachsen polizeiliche Aufgaben wahrzunehmen.
+
+(5) Beamte im Beamtenverhältnis auf Probe stehen grundsätzlich den Beamten ihrer Laufbahngruppe gleich, in der ersten Einstiegsebene der Laufbahngruppe 2 jedoch nur, soweit sie ihre Fach- und Laufbahnprüfung abgelegt haben oder mindestens zwei Jahre in einer der in dieser Verordnung bezeichneten Beamtengruppen tätig sind.
+
+(6) Amtsbezeichnungen in dieser Verordnung gelten jeweils in weiblicher und männlicher Form.
+
+
+## VO Ermittlungspersonen Staatsanwaltschaft § 2  Bestellung durch Gesetz
+
+Die Bestellung zu Ermittlungspersonen der Staatsanwaltschaft durch Gesetz bleibt unberührt.
+
+
+## VO Ermittlungspersonen Staatsanwaltschaft § 3  In-Kraft-Treten und Außer-Kraft-Treten
+
+Diese Verordnung tritt am Tage nach ihrer Verkündung in Kraft. Gleichzeitig tritt die 
+Verordnung des Sächsischen Staatsministeriums der Justiz über die Hilfsbeamten der Staatsanwaltschaft vom 26. März 1996 (SächsGVBl. S. 158) außer Kraft.
+
+Dresden, den 5. April 2005
+
+Der Staatsminister der Justiz 
+           Geert Mackenroth
+

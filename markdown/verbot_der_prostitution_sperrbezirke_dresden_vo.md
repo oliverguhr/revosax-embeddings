@@ -1,0 +1,49 @@
+# Sperrbezirksverordnung für Dresden
+
+Verordnungder Landesdirektion Sachsenüber das Verbot der Prostitution zum Schutzedes öffentlichen Anstandes und der Jugend in der Landeshauptstadt Dresden(Sperrbezirksverordnung für Dresden – SperrbezirksVO Dresden)
+
+## Sperrbezirksverordnung für Dresden § 1 Begriffsbestimmungen
+
+(1) Prostitution im Sinne dieser Verordnung ist die Erbringung einer sexuellen Dienstleistung gegen Entgelt. Eine sexuelle Dienstleistung ist eine sexuelle Handlung mindestens einer Person an oder vor mindestens einer anderen unmittelbar anwesenden Person gegen Entgelt oder das Zulassen einer sexuellen Handlung an oder vor der eigenen Person gegen Entgelt. Keine sexuellen Dienstleistungen sind Vorführungen mit ausschließlich darstellerischem Charakter, bei denen keine weitere der anwesenden Personen sexuell aktiv einbezogen ist. Prostituierte im Sinne dieser Verordnung sind Personen, die sexuelle Dienstleistungen gegen Entgelt erbringen. Anbahnung ist die unmittelbare Werbung oder Vermittlung der sexuellen Dienstleistung.
+
+(2) Prostitution im Sinne des Absatzes 1 ist insbesondere Straßen-, Wohnungs- und Bordellprostitution.
+
+a) Straßenprostitution ist die Anbahnung und das Nachgehen der Prostitution auf öffentlichen Straßen, Wegen, Plätzen, Anlagen und an sonstigen Orten, die von dort aus eingesehen werden können. Hiervon umfasst sind beispielsweise Verkehrsmittel und deren Haltestellen, Parkanlagen, Gärten, Höfe, Hauseingänge, Treppenhäuser, Bedürfnisanstalten, Brücken, Ruinen, Durchgänge sowie Unterführungen, soweit diese Örtlichkeiten öffentlich sind oder von öffentlichen Straßen, Wegen, Plätzen oder Anlagen eingesehen werden können. b) Bordellprostitution im Sinne dieser Verordnung umfasst die Prostitution und deren Anbahnung in Prostituiertenwohnheimen, Prostituiertenunterkünften und sonstigen überwiegend von mehreren Prostituierten genutzten Gebäuden, Gebäudeteilen und Einrichtungen sowie vergleichbare Erscheinungsformen, wie zum Beispiel sogenannte Massagesalons, in denen auch sexuelle Dienstleistungen gegen Entgelt angeboten werden. c) Wohnungsprostitution im Sinne dieser Verordnung ist die Prostitution und deren Anbahnung in der von einer oder mehreren Prostituierten überwiegend zum Wohnen genutzten Wohnung sowie vergleichbare Erscheinungsformen. 
+## Sperrbezirksverordnung für Dresden § 2 Sperrbezirke
+
+In der Landeshauptstadt Dresden ist jede Form der Prostitution und deren Anbahnung im Freien, in ortsfesten oder beweglichen Einrichtungen aller Art innerhalb der wie folgt begrenzten Gebiete verboten (Sperrbezirke):
+
+1. Schlesischer Platz komplett, Hansastraße von Schlesischer Platz bis Lößnitzstraße, Lößnitzstraße von Hansastraße bis Dammweg, Dammweg von Lößnitzstraße bis Stauffenbergallee, Stauffenbergallee von Dammweg bis Radeberger Straße, Radeberger Straße von Stauffenbergallee bis Charlottenstraße, Charlottenstraße von Radeberger Straße bis Heideparkstraße, Heideparkstraße von Charlottenstraße bis Fischhausstraße, Fischhausstraße von Heideparkstraße bis Bautzner Straße, Bautzner Straße von Fischhausstraße bis Schillerstraße, Schillerstraße von Bautzner Straße bis Körnerplatz, Körnerplatz komplett, Elbbrückenstraße von Körnerplatz bis Loschwitzer Brücke, Loschwitzer Brücke von Elbbrückenstraße bis Schillerplatz, Schillerplatz komplett, Loschwitzer Straße von Schillerplatz bis Königsheimplatz, Königsheimplatz komplett, Blasewitzer Straße von Königsheimplatz bis Fetscherstraße, Fetscherstraße von Blasewitzer Straße bis Fetscherplatz, Fetscherplatz komplett, Fetscherstraße von Fetscherplatz bis Comeniusstraße, Comeniusstraße von Fetscherstraße bis Bertolt-Brecht-Platz, Bertolt-Brecht-Platz komplett, Comeniusstraße von Bertolt-Brecht-Platz bis Zwinglistraße, Zwinglistraße von Falkensteinplatz bis Grunaer Weg inklusive Falkensteinplatz komplett, Grunaer Weg von Zwinglistraße bis Rayskistraße, Rayskistraße von Grunaer Weg bis Reicker Straße, Reicker Straße von Rayskistraße bis An der Christuskirche, An der Christuskirche komplett, Altstrehlen komplett, Lannerstraße von Altstrehlen bis Heinrich-Zille-Straße, Heinrich-Zille-Straße von Lannerstraße bis Capspar-David-Friedrich-Straße, Caspar-David-Friedrich-Straße von Heinrich-Zille-Straße bis Räcknitzhöhe, Räcknitzhöhe von Caspar-David-Friedrich-Straße bis Nöthnitzer Straße, Nöthnitzer Straße von Räcknitzhöhe bis Georg-Schumann-Straße, Georg-Schumann-Straße von Nöthnitzer Straße bis Münchner Platz, Münchner Platz komplett, Hübnerstraße von Münchner Platz bis Bergstraße, Bergstraße von Hübnerstraße bis Kaitzer Straße, Kaitzer Straße von Bergstraße bis Wielandstraße, Wielandstraße von Kaitzer Straße bis Budapester Straße, Budapester Straße von Wielandstraße bis Ammonstraße inklusive nordwestlicher Auf- und Abfahrt zur Budapester Straße, Ammonstraße von Budapester Straße inklusive nordwestlicher Auf- und Abfahrt zur Budapester Straße bis Könneritzstraße, Könneritzstraße von Ammonstraße bis Schweriner Straße, Schweriner Straße von Könneritzstraße bis Schäferstraße, Schäferstraße von Schweriner Straße bis Waltherstraße, Waltherstraße von Schäferstraße bis Magdeburger Straße, Magdeburger Straße von Waltherstraße bis Könneritzstraße, Könneritzstraße von Magdeburger Straße bis Marienbrücke, Marienbrücke von Könneritzstraße bis Antonstraße, Antonstraße von Marienbrücke bis Schlesischer Platz; 2. Ortschaft Altfranken; 3. Ortschaft Cossebaude mit den Gemarkungen Cossebaude, Niederwartha, Niedergohlis und Obergohlis; 4. Ortschaft Gompitz mit den Gemarkungen Gompitz, Ockerwitz, Pennrich, Roitzsch, Steinbach, Unkersdorf und Zöllmen; 5. Ortschaft Langebrück; 6. Ortschaft Mobschatz mit den Gemarkungen Brabschütz, Leuteritz, Merbitz, Mobschatz, Podemus und Rennersdorf; 7. Ortschaft Oberwartha; 8. Ortschaft Schönborn; 9. Ortschaft Schönfeld-Weißig mit den Gemarkungen Borsberg, Cunnersdorf, Eschdorf, Gönnsdorf, Helfenberg mit Eichbusch und Rockau, Krieschendorf, Malschendorf, Pappritz, Reitzendorf, Rossendorf, Schönfeld, Schullwitz, Weißig und Zaschendorf; 10. Ortschaft Weixdorf mit den Gemarkungen Gomlitz, Lausa mit Friedersdorf, Marsdorf und Weixdorf. 
+## Sperrbezirksverordnung für Dresden § 3 Abgrenzung der Sperrbezirke und kartografische Darstellung
+
+(1) Soweit nicht ausdrücklich etwas anderes bestimmt ist, gehören die aufgeführten Straßen, Wege, Anlagen und Plätze zu den Sperrbezirken, soweit sie diese begrenzen. Das gleiche gilt für die außerhalb der Sperrbezirke liegenden Grundstücke, die an die aufgeführten Straßen, Wege, Anlagen oder Plätze angrenzen oder über sie mittelbar erschlossen werden. Grundstücke werden über diejenigen Straßen, Wege, Anlagen und Plätze mittelbar erschlossen, zu denen über dazwischen liegende Grundstücke in rechtlich zulässiger Weise Zugang oder Zufahrt genommen werden darf oder sie im Wege der mittelbaren Erschließung einsehbar sind.
+
+(2) Die Grenzen der Sperrbezirke nach § 2 sind in vier Karten im Maßstab von 1:30 000 als rot unterlegte Grenzlinie eingetragen. Die Karten sind Bestandteil dieser Verordnung. Der Sperrbezirk nach § 2 Nummer 1 ist auf Karte 1, die Sperrbezirke nach § 2 Nummer 2, 3, 4, 6 und 7 auf Karte 2, die Sperrbezirke nach § 2 Nummer 5, 8 und 10 auf Karte 3 sowie der Sperrbezirk nach § 2 Nummer 9 auf Karte 4 dargestellt. Bei Abweichungen der bildlichen Darstellung von der verbalen Grenzbeschreibung bleibt die verbale Grenzbeschreibung maßgebend.
+
+(3) Diese Verordnung ist eine Woche nach Verkündung im Sächsischen Gesetz- und Verordnungsblatt bei der Landesdirektion Sachsen in deren Dienststelle Leipzig sowie bei der Landeshauptstadt Dresden dauerhaft zur kostenlosen Einsicht während der Sprechzeiten niedergelegt:
+
+– Landesdirektion Sachsen, Dienststelle Leipzig, Braustraße 2, 04107 Leipzig, – Landeshauptstadt Dresden, Ordnungsamt, Abteilung Gewerbeangelegenheiten, Theaterstraße 11–15, 01067 Dresden. 
+## Sperrbezirksverordnung für Dresden § 4 Übriges Stadtgebiet
+
+(1) Im übrigen Stadtgebiet der Landeshauptstadt Dresden ist es verboten, der Straßenprostitution nachzugehen oder diese anzubahnen.
+
+(2) Vom Verbot der Anbahnung der Prostitution nach Absatz 1 ist die Bremer Straße in der Zeit von 20 Uhr bis 6 Uhr ausgenommen. Diese Ausnahme gilt nicht für die Umgebung des Neuen Katholischen Friedhofes und des Äußeren ­Matthäusfriedhofes in einer Mindestentfernung von 200 m Luftlinie von der jeweiligen Grundstücksgrenze.
+
+(3) Das in Absatz 2 genannte Gebiet ist auf Karte 5 im Maßstab 1:10 000 als grün unterlegte Grenzlinie dargestellt. § 3 Absatz 2 Satz 2 und 4 gelten entsprechend.
+
+
+## Sperrbezirksverordnung für Dresden § 5 Zuwiderhandlungen
+
+(1) Nach § 120 Absatz 2 des Gesetzes über Ordnungswidrigkeiten in der Fassung der Bekanntmachung vom 19. Februar 1987 (BGBl. I S. 602), das zuletzt durch Artikel 5 Absatz 15 des Gesetzes vom 21. Juni 2019 (BGBl. I S. 846) geändert worden ist, kann mit Geldbuße belegt werden, wer einem durch die §§ 2 und 4 dieser Verordnung erlassenen Verbot, der Prostitution an bestimmten Orten überhaupt oder zu bestimmten Tageszeiten nachzugehen, zuwiderhandelt. Die Ordnungswidrigkeit kann mit einer Geldbuße bis zu 1 000 Euro geahndet werden.
+
+(2) Die §§ 184f und 184g des Strafgesetzbuches in der Fassung der Bekanntmachung vom 13. November 1998 (BGBl. I S. 3322), das zuletzt durch Artikel 2 des Gesetzes vom 19. Juni 2019 (BGBl. I S. 844) geändert worden ist, bleiben unberührt.
+
+
+## Sperrbezirksverordnung für Dresden § 6 Inkrafttreten, Außerkrafttreten
+
+Diese Verordnung tritt am Tag nach der Verkündung in Kraft. Gleichzeitig tritt die Verordnung des Regierungspräsidiums Dresden über das Verbot der Prostitution zum Schutze des öffentlichen Anstandes und der Jugend in der Landeshauptstadt Dresden vom 1. Juli 1999 (SächsGVBl., S. 453) außer Kraft.
+
+Chemnitz, den 16. Juli 2019
+
+Landesdirektion SachsenGökelmannPräsident
+

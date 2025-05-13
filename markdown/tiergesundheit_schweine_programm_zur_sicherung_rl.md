@@ -1,0 +1,86 @@
+# Gemeinsame Richtlinie des Sächsischen Staatsministeriums für Soziales und des Sächsischen Staatsministeriums für Umwelt und Landwirtschaft zum Programm zur Sicherung der Tiergesundheit in Schweine haltenden Betrieben
+
+Gemeinsame Richtlinie des Sächsischen Staatsministeriums für Soziales und des Sächsischen Staatsministeriums für Umwelt und Landwirtschaft zum Programm zur Sicherung der Tiergesundheit in Schweine haltenden Betrieben
+
+## Gemeinsame Richtlinie des Sächsischen Staatsministeriums für Soziales und des Sächsischen Staatsministeriums für Umwelt und Landwirtschaft zum Programm zur Sicherung der Tiergesundheit in Schweine haltenden Betrieben I. Ziel und Zweck der Richtlinie
+
+I. Ziel und Zweck der Richtlinie Die Gefährdung der Schweine haltenden Betriebe im Freistaat Sachsen durch Tierseuchen und andere ökonomisch bedeutsame faktorenabhängige Infektionskrankheiten und Parasitosen kann durch Hygienemaßnahmen und ein wirksames Tiergesundheitsmanagement gemindert werden. Damit wird der Einschleppung und Weiterverbreitung dieser Erkrankungen vorgebeugt und ihre Früherkennung verbessert. Das dient auch dem gesundheitlichen Verbraucherschutz. 
+         Die Richtlinie hat zum Ziel, das Tiergesundheitsniveau in den Schweinebeständen als Voraussetzung für hohe tierische Leistungen und gesundheitlichen Verbraucherschutz anzuheben. Dafür wird dem Schweine haltenden Landwirt im Freistaat Sachsen das fachspezifische Beratungspotential des Schweinegesundheitsdienstes der Sächsischen Tierseuchenkasse, der Lebensmittelüberwachungs- und Veterinärämter (LÜVA), der Staatlichen Ämter für Landwirtschaft, des betreuenden Tierarztes sowie eine fachliche Begleitung der Maßnahmen zur Sicherung der Tiergesundheit komplex und konzentriert angeboten. 
+         Im Einvernehmen mit der Sächsischen Tierseuchenkasse ist diese Träger des Programms. 
+         Es wird weiterhin von den Betrieben und wirtschaftlichen Vereinigungen der Schweineproduktion getragen.
+
+
+## Gemeinsame Richtlinie des Sächsischen Staatsministeriums für Soziales und des Sächsischen Staatsministeriums für Umwelt und Landwirtschaft zum Programm zur Sicherung der Tiergesundheit in Schweine haltenden Betrieben II. Begriffsbestimmung
+
+II. Begriffsbestimmung Im Sinne dieser Richtlinie sind
+
+1. Betrieb
+ alle Schweineställe oder sonstige Standorte für Schweine einschließlich der dazugehörigen Nebengebäude und des dazugehörigen Geländes, die hinsichtlich der tatsächlichen Nutzung und der räumlichen Anordnung, insbesondere der Ver- und Entsorgung, eine Einheit bilden. 2. wirtschaftliche Vereinigung
+ ein Zusammenschluss von Betrieben zur Zucht, Erzeugung oder Vermarktung von Schweinen, in dem gemeinsame Grundsätze und Produktionsrichtlinien umgesetzt werden können (Erzeugergemeinschaft, Zuchtverband, Markenprogramme oder Ähnliches). 
+## Gemeinsame Richtlinie des Sächsischen Staatsministeriums für Soziales und des Sächsischen Staatsministeriums für Umwelt und Landwirtschaft zum Programm zur Sicherung der Tiergesundheit in Schweine haltenden Betrieben III. Teilnahme
+
+III. Teilnahme 1. Zur Teilnahme an diesem Programm ist ein formloser Antrag an den Schweinegesundheitsdienst der Sächsischen Tierseuchenkasse zu richten. Es können alle Schweine haltenden Betriebe und wirtschaftlichen Vereinigungen, die ihren Standort im Freistaat Sachsen haben, freiwillig teilnehmen, wenn vorher eine Untersuchung des Betriebes nach Ziffer VI erfolgt ist. 2. Mit dem Beitritt zum Programm verpflichtet sich der Tierbesitzer schriftlich zur Einhaltung dieser Richtlinie und benennt den entsprechend § 7 der Verordnung über hygienische Anforderungen beim Halten von Schweinen (Schweinehaltungshygieneverordnung – SchHaltHygV) vom 7. Juni 1999 (BGBl. I S. 1252), die zuletzt durch Artikel 5a der Verordnung vom 12. Dezember 2002 (BGBl. I S. 4532, 4537) geändert worden ist, für die tierärztliche Bestandsbetreuung seines Betriebes verantwortlichen Tierarzt (betreuender Tierarzt). Die Verpflichtungserklärung ist dieser Richtlinie als Anlage 1 beigefügt. 
+## Gemeinsame Richtlinie des Sächsischen Staatsministeriums für Soziales und des Sächsischen Staatsministeriums für Umwelt und Landwirtschaft zum Programm zur Sicherung der Tiergesundheit in Schweine haltenden Betrieben IV. Tierhygienische Anforderungen – Maßnahmen der Tierseuchenprophylaxe
+
+IV. Tierhygienische Anforderungen – Maßnahmen der Tierseuchenprophylaxe 1. Jeder Teilnehmer am Programm ist verpflichtet, eine Verfahrensanweisung „Tierseuchenschutz“ schriftlich festzulegen und auszuführen. 2. Neben den tierseuchenrechtlichen Vorschriften ist die betriebsspezifische Verfahrensanweisung „Tierseuchenschutz“ einzuhalten. 3. Die Erarbeitung der Verfahrensanweisung „Tierseuchenschutz“ wird unterstützt durch Empfehlungen des LÜVA, des Schweinegesundheitsdienstes der Sächsischen Tierseuchenkasse, des betreuenden Tierarztes und der Sachbearbeiter für tierische Erzeugung und Vermarktung des zuständigen Staatlichen Amtes für Landwirtschaft. 4. Die Maßnahmen zur seuchenprophylaktischen Absicherung müssen den Anforderungen der Schweinehaltungshygieneverordnung entsprechen. 5. Bei der Einstallung von Schweinen in einen Betrieb sind die Anforderungen der Schweinehaltungshygieneverordnung hinsichtlich der Absonderung von neu eingestallten Schweinen einzuhalten. 6. In den Zuchtbetrieben sind Blutproben von allen Sauen, die verferkelt haben, gemäß dem Programm zur Abklärung von Aborten bei Pferden, Rindern, Schweinen und Schafen vom 13. Oktober 1998 auf Brucellose, Leptospirose, Aujeszkysche Krankheit und Klassische Schweinepest zu untersuchen. 7. PRRS unverdächtige Zuchtbestände führen die notwendigen Untersuchungen gemäß dem Programm des Sächsischen Staatsministeriums für Soziales, Gesundheit und Familie und der Sächsischen Tierseuchenkasse zum Schutz der Schweinebestände vor der Infektion mit dem Virus des Porcinen Reproduktiven und Respiratorischen Syndroms (
+          PRRS-Programm) vom 17. April 1998 (SächsABl. S. 656), verlängert durch Verwaltungsvorschrift vom 25. November 2003 (SächsABl. S. 1165), durch. 
+## Gemeinsame Richtlinie des Sächsischen Staatsministeriums für Soziales und des Sächsischen Staatsministeriums für Umwelt und Landwirtschaft zum Programm zur Sicherung der Tiergesundheit in Schweine haltenden Betrieben V. Anforderungen an das Tiergesundheitsmanagement (TGM) zur Sicherung einer geringen Erkrankungshäufigkeit bei ökonomisch bedeutsamen sowie verbraucherschutzrelevanten Infektionskrankheiten und Parasitosen
+
+V. Anforderungen an das Tiergesundheitsmanagement (TGM) zur Sicherung einer geringen Erkrankungshäufigkeit bei ökonomisch bedeutsamen sowie verbraucherschutzrelevanten Infektionskrankheiten und Parasitosen 1. Grundsätze a) Jeder Teilnehmer am Programm ist verpflichtet, eine Verfahrensanweisung „Tiergesundheitsmanagement“ schriftlich festzulegen und auszuführen. b) Die Erarbeitung der Verfahrensanweisung „TGM“ wird unterstützt durch Empfehlungen des Schweinegesundheitsdienstes der Sächsischen Tierseuchenkasse, des betreuenden Tierarztes, des LÜVA und der Sachbearbeiter für tierische Erzeugung und Vermarktung des zuständigen Staatlichen Amtes für Landwirtschaft. c) Die Maßnahmen des TGM sind auf die Prophylaxe und Bekämpfung aller ökonomisch bedeutsamen und verbraucherschutzrelevanten infektiösen und nichtinfektiösen Erkrankungen gerichtet, insbesondere auf: 
+          
+Atemwegserkrankungen,
+            
+Durchfallerkrankungen,
+            
+Parasitosen,
+            
+Fruchtbarkeitsstörungen,
+            
+Rotlauf und
+            
+Salmonelleninfektionen. 2. TGM in den Betrieben Im betrieblichen TGM werden in Form einer Verfahrensanweisung „Tiergesundheitsmanagement“ die betriebsspezifischen Maßnahmen der Haltung, der Fütterung, der Produktionsorganisation, des Hygieneregimes und der Prophylaxe zur Sicherung eines hohen Gesundheitsniveaus festgelegt. In den Verfahrensanweisungen werden für die einzelnen Maßnahmen Arbeitsanweisungen erstellt und Verantwortlichkeiten festgelegt. Ist der Betrieb Mitglied in einer wirtschaftlichen Vereinigung, so sind die Maßnahmen im integrierten TGM dieser Vereinigung verbindlicher Bestandteil des TGM der beteiligten Betriebe. a) Produktionshygiene
+
+ Die Haltungsbedingungen von Schweinen entsprechen der Verordnung zum Schutz landwirtschaftlicher Nutztiere und anderer zur Erzeugung tierischer Produkte gehaltener Tiere bei ihrer Haltung (
+            Tierschutz-Nutztierhaltungsverordnung
+ – 
+              TierSchNutztV) vom 25. Oktober 2001 (BGBl. I S. 2758), geändert durch Verordnung vom 28. Februar 2002 (BGBl. I S. 1026), in der jeweils geltenden Fassung. Die Bewirtschaftung der Abferkel-, Ferkelaufzucht- und Mastställe erfolgt nach dem Rein-Raus-Prinzip. Nach der Ausstallung ist eine gründliche Reinigung und Desinfektion während der Serviceperiode bis zur Wiedereinstallung zu sichern. In Beständen, in denen derzeit die baulichen Voraussetzungen für die Anwendung des Rein-Raus-Prinzips noch fehlen, ist dessen Einführung konsequent anzustreben. Bei kontinuierlicher Belegung von Ställen, bei denen das Rein-Raus-Prinzip nicht durchführbar ist, erfolgt eine Reinigung und Desinfektion der jeweiligen Tierplätze nach deren Räumung zwischen den Belegungen und einmal jährlich eine Gesamtreinigung und -desinfektion des Stalles. Es werden nur die in der jeweils aktuellen Desinfektionsmittelliste der Deutschen Veterinärmedizinischen Gesellschaft für die Tierhaltung aufgeführten geprüften Desinfektionsmittel eingesetzt. Eine Schadnager- und Fliegenbekämpfung wird kontinuierlich durchgeführt. b) Immunprophylaktische und medikamentelle Maßnahmen
+ Immunprophylaktische und medikamentelle Maßnahmen werden unter Verantwortung des betreuenden Tierarztes unter Berücksichtigung des Gesundheitszustandes des Bestandes, des nachgewiesenen Erregerspektrums und an Hand von klinischen und labordiagnostischen Befunden gemeinsam mit dem Tierhalter festgelegt und durchgeführt. Der Medikamenteneinsatz erfolgt nach den Anweisungen des betreuenden Tierarztes unter Berücksichtigung der Verordnung über Nachweispflichten für Arzneimittel, die zur Anwendung bei Tieren bestimmt sind, vom 2. Januar 1978 (BGBl. I S. 26), zuletzt geändert durch Artikel 1 der Verordnung vom 10. August 2001 (BGBl. I S. 2131), in der jeweils geltenden Fassung. Die Betriebe werden auf Anforderung in allen Fragen der Prophylaxe und des Medikamenteneinsatzes durch den Schweinegesundheitsdienst der Sächsischen Tierseuchenkasse beraten. c) Tierärztliche Bestandsuntersuchung
+ Zur Sicherung der Früherkennung von Gesundheitsstörungen ist eine regelmäßige Bestandsuntersuchung durch den betreuenden Tierarzt nach § 7 SchHaltHygV durchzuführen und zu dokumentieren. Bei Feststellung von Erkrankungen durch den Tierhalter sind unverzüglich der betreuende Tierarzt und erforderlichenfalls der Schweinegesundheitsdienst der Sächsischen Tierseuchenkasse und das LÜVA zu informieren und notwendige Sektionen und andere labordiagnostische Nachfolgeuntersuchungen zur weiteren Abklärung der klinischen Diagnose sowie der Erkrankungsursachen in erforderlichem Umfang in der Landesuntersuchungsanstalt für das Gesundheits- und Veterinärwesen Sachsen (LUA) zu veranlassen. 3. Gemeinschaftliches TGM in wirtschaftlichen Vereinigungen Im gemeinschaftlichen TGM einer wirtschaftlichen Vereinigung werden durch Gesellschaftsvertrag oder durch Satzung die Maßnahmen zur durchgängigen Sicherung eines hohen Gesundheitsniveaus in der Stufenproduktion vom Ferkelerzeugerbetrieb bis zum Mastbetrieb festgelegt. Diese Maßnahmen sind verbindlicher Bestandteil des betrieblichen TGM der Mitgliedsbetriebe. a) Organisation des TGM
+ Bei der Erarbeitung und Durchführung der nach dem TGM vorgesehenen Maßnahmen sind der Schweinegesundheitsdienst der Sächsischen Tierseuchenkasse, die betreuenden Tierärzte, das zuständige LÜVA und das zuständige Staatliche Amt für Landwirtschaft zu beteiligen. Datenverbundsysteme können nach Maßgabe datenschutzrechtlicher Vorschriften zum Austausch von Informationen zu den in dieser Richtlinie genannten Maßnahmen zwischen den beteiligten Partnern genutzt werden. b) Produktionshygiene
+ In den Mitgliedsbetrieben sind die unter Nummer 2 Buchst. a aufgeführten Maßnahmen zu realisieren. c) Immunologische und medikamentelle Maßnahmen
+ Die unter Nummer 2 Buchst. b aufgeführten Grundsätze sind in allen Mitgliedsbetrieben einzuhalten. 
+## Gemeinsame Richtlinie des Sächsischen Staatsministeriums für Soziales und des Sächsischen Staatsministeriums für Umwelt und Landwirtschaft zum Programm zur Sicherung der Tiergesundheit in Schweine haltenden Betrieben VI. Überprüfung und Einhaltung des Verfahrens
+
+VI. Überprüfung und Einhaltung des Verfahrens Die am Programm teilnehmenden Betriebe werden regelmäßig entsprechend den Vorgaben der Schweinehaltungshygieneverordnung durch den betreuenden Tierarzt kontrolliert. Im Abstand von drei Jahren wird gemeinsam von den Mitarbeitern des Schweinegesundheitsdienstes der Sächsischen Tierseuchenkasse und dem LÜVA sowie dem zuständigen Sachbearbeiter für tierische Erzeugung und Vermarktung des Staatlichen Amtes für Landwirtschaft eine Überprüfung auf die Einhaltung der Bedingungen der Richtlinie nach Ziffern IV und V vorgenommen. Über das Ergebnis wird ein Protokoll nach dem Muster, das dieser Richtlinie als Anlage 2 beigefügt ist, angefertigt, welches dem zuständigen LÜVA, der Sächsischen Tierseuchenkasse und dem zuständigen Staatlichen Amt für Landwirtschaft übermittelt wird. 
+         Darüber hinaus kann die Einhaltung der Richtlinie unabhängig von dem im Satz 2 genannten Zeitraum durch den dort genannten Personenkreis kontrolliert werden. 
+         Ergeben sich in einem Betrieb wesentliche, die Einhaltung der Bedingungen für die Teilnahme am Programm betreffende Änderungen, so ist unverzüglich das zuständige LÜVA zu informieren. Diese Meldepflicht betrifft insbesondere Änderungen der Betriebsstruktur sowie das Auftreten von nach dem TGM relevanten Infektionskrankheiten. Tierseuchenrechtliche Melde- und Anzeigepflichten bleiben unberührt.
+
+
+## Gemeinsame Richtlinie des Sächsischen Staatsministeriums für Soziales und des Sächsischen Staatsministeriums für Umwelt und Landwirtschaft zum Programm zur Sicherung der Tiergesundheit in Schweine haltenden Betrieben VII. Bescheinigung der ordnungsgemäßen Teilnahme und Widerruf der Anerkennung
+
+VII. Bescheinigung der ordnungsgemäßen Teilnahme und Widerruf der Anerkennung 1. Betriebe, die ordnungsgemäß am Programm teilnehmen und die Maßgaben dieser Richtlinie erfüllen, erhalten vom zuständigen LÜVA eine amtliche Bescheinigung nach dem Muster, das dieser Richtlinie als Anlage 3 beigefügt ist. Diese Anerkennung der ordnungsgemäßen Teilnahme gilt für den Zeitraum von drei Jahren. 2. Ergeben die Untersuchungen oder liegen Hinweise vor, dass die Maßgaben dieser Richtlinie vom Teilnehmer nicht eingehalten werden, kann die Anerkennung der ordnungsgemäßen Teilnahme vom zuständigen LÜVA widerrufen werden, sofern die Mängel nicht abgestellt werden. 3. Die Anerkennung der ordnungsgemäßen Teilnahme am Programm beziehungsweise deren Widerruf werden vom zuständigen LÜVA der Sächsischen Tierseuchenkasse, dem zuständigen Staatlichen Amt für Landwirtschaft und dem betreuenden Tierarzt mitgeteilt. 
+## Gemeinsame Richtlinie des Sächsischen Staatsministeriums für Soziales und des Sächsischen Staatsministeriums für Umwelt und Landwirtschaft zum Programm zur Sicherung der Tiergesundheit in Schweine haltenden Betrieben VIII. Kosten
+
+VIII. Kosten 1. Die Kosten des Programmes trägt der Tierbesitzer. 2. Die Beratung durch den Schweinegesundheitsdienst der Sächsischen Tierseuchenkasse, die Staatlichen Ämter für Landwirtschaft, die Lebensmittelüberwachungs- und Veterinärämter und den betreuenden Tierarzt erfolgt unter Beachtung bestehender Leistungssatzungen beziehungsweise Gebührenordnungen. 3. Die Kosten für diagnostische Maßnahmen werden von der Sächsischen Tierseuchenkasse getragen, sofern die Leistungssatzung das vorsieht. 
+## Gemeinsame Richtlinie des Sächsischen Staatsministeriums für Soziales und des Sächsischen Staatsministeriums für Umwelt und Landwirtschaft zum Programm zur Sicherung der Tiergesundheit in Schweine haltenden Betrieben IX. In-Kraft-Treten und Außer-Kraft-Treten
+
+IX. In-Kraft-Treten und Außer-Kraft-Treten Diese Richtlinie tritt am Tage nach ihrer Veröffentlichung in Kraft. Gleichzeitig tritt die Gemeinsame Richtlinie des Sächsischen Staatsministeriums für Soziales, Gesundheit und Familie sowie des Sächsischen Staatsministeriums für Landwirtschaft, Ernährung und Forsten zum Programm zur Sicherung der Tiergesundheit in schweinehaltenden Betrieben vom 9. April 1998 (SächsABl. S. 330), verlängert durch Verwaltungsvorschrift vom 17. November 2003 (SächsABl. S. 1148), außer Kraft.
+
+Dresden, den 18. April 2005
+
+Die Staatsministerin für Soziales 
+           Helma Orosz
+
+Der Staatsminister 
+           für Umwelt und Landwirtschaft 
+           Stanislaw Tillich
+
+
+## Gemeinsame Richtlinie des Sächsischen Staatsministeriums für Soziales und des Sächsischen Staatsministeriums für Umwelt und Landwirtschaft zum Programm zur Sicherung der Tiergesundheit in Schweine haltenden Betrieben Anlagen
+
+Anlage 1
+
+Anlage 2
+
+Anlage 3
+

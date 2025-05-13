@@ -1,0 +1,115 @@
+# Verordnung des Regierungspräsidiums Leipzig zur Festsetzung des Naturschutzgebietes „Pfarrholz Groitzsch“
+
+Verordnung des Regierungspräsidiums Leipzig zur Festsetzung des Naturschutzgebietes „Pfarrholz Groitzsch“
+
+## Verordnung des Regierungspräsidiums Leipzig zur Festsetzung des Naturschutzgebietes „Pfarrholz Groitzsch“ § 1 Festsetzung als Schutzgebiet
+
+Die in § 2 näher bezeichneten Flächen auf dem Gebiet der Städte Groitzsch und Pegau, Landkreis Leipziger Land, werden als Naturschutzgebiet festgesetzt. Das Naturschutzgebiet führt die Bezeichnung „Pfarrholz Groitzsch“.
+
+
+## Verordnung des Regierungspräsidiums Leipzig zur Festsetzung des Naturschutzgebietes „Pfarrholz Groitzsch“ § 2 Schutzgegenstand
+
+(1) Das Naturschutzgebiet (NSG) hat eine Größe von zirka 37 ha. Es umfasst einen Abschnitt der Schwennigke und den zwischen dem Fließgewässer und der östlichen Hangoberkante gelegenen Teilbereich der Elsteraue südlich von Groitzsch. Die Schwennigke verläuft am östlichen Rand der Elsteraue und weist über den gesamten, im Schutzgebiet gelegenen Fließgewässerabschnitt eine sehr naturnahe Morphologie auf. Sie fließt in nördlicher Richtung und begrenzt das NSG nach Westen hin. Der unter Naturschutz gestellte Auenbereich setzt sich aus oft mosaikartig angeordneten Laubholzwäldern mit überwiegend naturnaher Bestockung (Eichen-Hainbuchen-Hangwald, Hartholzaue) sowie Grünlandtypen unterschiedlichster Ausbildungsformen zusammen. Das Grünland, insbesondere die Auenwiesen, sind durch die vor 1990 intensiv durchgeführte Landwirtschaft und ein anschließendes Brachestadium geprägt. Aktuell sind mehrheitlich extensive Bewirtschaftungsformen verbreitet.
+
+(2) Das Schutzgebiet umfasst nach dem Stand vom 30. Juni 2001 auf dem Gebiet der Stadt GroitzschGemarkung Groitzsch nach dem Stand vom 25. August 2000
+            Flurkarte 4 die Flurstücke: 838 zum Teil, 859, 860, 899 zum Teil, 900;
+            Flurkarte 7 die Flurstücke: 859, 861, 899, 1090, 1091, 1092 zum Teil, 1093, 1094;
+            Flurkarte 12 die Flurstücke: 899, 1095, 1096, 1098/1 zum Teil, 1098/2 zum Teil, 1100, 1101, 1102, 1103, 1104, 1105, 1106, 1107, 1108, 1109;
+            Gemarkung Altengroitzsch nach dem Stand vom 25. August 2000
+            Flurkarte 4 die Flurstücke: 26/6 zum Teil, 37 zum Teil, 40 zum Teil, 46, 47, 48, 49, 50, 51, 52 zum Teil, 55, 66, 67, 68, 70 zum Teil, 72 zum Teil, 84 zum Teil, 85 zum Teil, 86, 87, 88, 89, 90, 91 zum Teil, 92, 93, 94, 95, 95 a, 96, 96 a, 97, 98, 99, 102, 103;
+            Flurkarte 5 die Flurstücke: 55, 56, 61, 62, 63, 64, 65; 67; 68.
+            Auf dem Gebiet der Stadt PegauGemarkung Pegau nach dem Stand vom 25. August 2000
+            Flurkarte 18 das Flurstück 1577 zum Teil;
+            Flurkarte 20 das Flurstück 1576 zum Teil.
+
+(3) Die Grenzen des Schutzgebietes sind in einer Übersichtskarte des Regierungspräsidiums Leipzig vom 27. Juni 2002 im Maßstab 1:10 000, einer Übersichtskarte zur Lage der Fluren im Maßstab 1:10 000 und in neun Flurstückskarten des Regierungspräsidiums Leipzig vom 27. Juni 2002 im Maßstab von 1:1 000 und 1:2 000 im Original rot und in den Vervielfältigungen schwarz eingetragen. Maßgebend für den Grenzverlauf ist die Linienaußenkante der Grenzeintragung. Die Karten sind Bestandteil der Verordnung.
+
+(4) Die Verordnung mit Karten wird beim Regierungspräsidium Leipzig, Braustraße 2, 04107 Leipzig, auf die Dauer von zwei Wochen nach der Verkündung dieser Verordnung im Sächsischen Amtsblatt zur kostenlosen Einsicht durch jedermann während der Dienstzeiten öffentlich ausgelegt.
+
+(5) Die Verordnung mit Karten ist nach Ablauf der Auslegungsfrist beim Regierungspräsidium Leipzig zur kostenlosen Einsicht durch jedermann während der Dienstzeiten niedergelegt.
+
+
+## Verordnung des Regierungspräsidiums Leipzig zur Festsetzung des Naturschutzgebietes „Pfarrholz Groitzsch“ § 3 Schutzzweck
+
+Schutzzweck ist:
+
+1. die Erhaltung und die Entwicklung eines aus naturschutzfachlichen, wissenschaftlichen und kulturhistorischen Gründen wertvollen Landschaftsteiles der Elsteraue, welcher das vollständige Spektrum naturnaher, auentypischer Biotope (Hangwald, bachbegleitender Auwald, Auenwiesen, Halbtrockenrasen, naturnaher Bach, Altwasser) umfasst; 2. die Erhaltung des Wald-Offenland-Verhältnisses; 3. der Erhalt und die möglichst naturnahe Entwicklung des Eichen-Hainbuchen-Hangwaldes mit dem Ziel des Aufbaus einer gestuften Altersstruktur einschließlich eines entsprechenden Alt- und Totholzanteiles als Habitat für holzbewohnende Organismen; 4. der Erhalt und die naturnahe Entwicklung des bachbegleitenden Hartholzauenwaldes und damit der Gewährleistung einer naturnahen Entwicklung des unmittelbaren Gewässerumfeldes; 5. die Entwicklung der nicht naturnah bestockten Waldanteile zu naturnahen, strukturreichen Eichen-Hainbuchen-Wäldern; 6. die Sicherung und Entwicklung strukturreicher Waldrandbereiche als wichtige Pufferzone zu den angrenzenden landwirtschaftlichen Nutzflächen; 7. die Entwicklung der stark verbrachten Frischwiesen der Talaue zu einem wechselfeuchten Wiesentyp durch geeignete Nutzung beziehungsweise extensive Pflege; 8. der Erhalt und die Entwicklung der artenreichen Frischwiesen der Talaue und des Auenhanges durch geeignete Nutzung beziehungsweise extensive Pflege; 9. der Erhalt und die Entwicklung der artenreichen Halbtrockenrasenbestände am Kirschberg zu einem artenreichen Halbtrockenrasen durch extensive Pflegemaßnahmen; 10. die Sicherung und Entwicklung der im Schutzgebiet vorhandenen Streuobstbestände einschließlich des darunter liegenden Grünlandes und der angrenzenden Saumstrukturen als Habitat für naturschutzfachlich wertgebende Pflanzenarten; 11. der Erhalt und die biotopgemäße Entwicklung der Schwennigke als naturnahes Fließgewässer durch Zulassen einer natürlichen Gewässerdynamik und -morphologie einschließlich der Sicherung des vorhandenen Altarmes als Habitat für gefährdete Tierarten (insbesondere Amphibien); 12. die gesicherte Entwicklung von Populationen wild lebender Tier- und Pflanzenarten, insbesondere jener der seltenen, bedrohten und geschützten Arten der naturnahen Laubwälder, Talauen- und Frischwiesen, Halbtrockenrasen sowie der Fließgewässer. 
+## Verordnung des Regierungspräsidiums Leipzig zur Festsetzung des Naturschutzgebietes „Pfarrholz Groitzsch“ § 4 Verbote
+
+(1) In dem NSG sind alle Handlungen verboten, die zu einer Zerstörung, Beschädigung oder Veränderung des Schutzgebietes oder seiner Bestandteile oder zu einer nachhaltigen Störung führen können.
+
+(2) Insbesondere ist verboten:
+
+1. bauliche Anlagen im Sinne der Sächsischen Bauordnung zu errichten, zu ändern, abzubrechen oder der Errichtung gleichgestellte Maßnahmen durchzuführen; 2. Straßen, Wege, Plätze oder sonstige Verkehrsanlagen anzulegen oder Anlagen dieser Art zu verändern; 3. Leitungen ober- oder unterirdisch zu verlegen oder Anlagen dieser Art zu verändern; 4. Abgrabungen, Aufschüttungen, Verfüllungen oder sonstige Handlungen vorzunehmen, die den Boden in seiner Gestalt, Struktur oder Beschaffenheit verändern oder verändern können; 5. Abfälle, insbesondere Garten- oder Ernteabfälle sowie sonstige Materialien zu lagern oder abzulagern; 6. Stoffe, Mittel oder Chemikalien einzubringen, anzuwenden oder zu lagern; 7. Handlungen vorzunehmen, die den Wasserhaushalt des Gebietes oder einzelner Gebietsteile verändern können; 8. Oberflächengewässer und Grundwasser zu verunreinigen; 9. Dauergrünland umzubrechen, ackerbaulich zu nutzen oder aufzuforsten; 10. Pflanzen oder Pflanzenteile einzubringen, zu entnehmen, zu beschädigen oder auf andere Weise in ihrem Wachstum und in ihrer Entwicklung zu gefährden oder zu zerstören; 11. Tiere einzubringen, wild lebenden Tieren nachzustellen, sie zu beunruhigen, zu fangen, zu verletzen oder zu töten oder Puppen, Larven, Eier oder Nester oder sonstige Brut-, Wohn- oder Zufluchtsstätten dieser Tiere zu entfernen, zu beschädigen oder zu zerstören; 12. Plakate, Schilder, Bild- oder Schrifttafeln oder sonstige Werbeanlagen aufzustellen oder anzubringen; 13. Markierungszeichen aufzustellen oder auf im Schutzgebiet befindliche Objekte aufzuzeichnen; 14. die bisherige Grundstücksnutzung in einer Art zu ändern, welche dem Schutzzweck zuwiderläuft; 15. zu zelten, zu lagern, Wohnwagen oder -mobile, sonstige Fahrzeuge oder Verkaufsstände oder Warenautomaten aufzustellen; 16. Flächen außerhalb der öffentlichen Straßen und Wege sowie der markierten Wanderwege zu betreten, auf ihnen zu reiten, mit motorgetriebenen oder bespannten Fahrzeugen zu fahren, die Regelungen der §§ 11 und 12 des Waldgesetzes für den Freistaat Sachsen (SächsWaldG) vom 10. April 1992 (SächsGVBl. S. 137), das zuletzt durch Artikel 19 des Gesetzes vom 6. Juni 2002 (SächsGVBl. S. 168, 172) geändert worden ist, bleiben unberührt; 17. Motor- oder Flugsport, einschließlich Modellflugsport, jeglicher Art zu betreiben; 18. Fahrzeuge, Maschinen oder Geräte zu waschen oder zu reinigen; 19. Feuer anzumachen und zu unterhalten; 20. die Gewässer mit Wasserfahrzeugen jeglicher Art zu befahren; 21. Hunde frei laufen zu lassen; 22. Lärm, Erschütterungen oder Luftverunreinigungen zu verursachen oder Lichtquellen zu betreiben, die geeignet sind, Tiere zu beunruhigen oder den Naturgenuss zu beeinträchtigen. 
+## Verordnung des Regierungspräsidiums Leipzig zur Festsetzung des Naturschutzgebietes „Pfarrholz Groitzsch“ § 5 Zulässige Handlungen
+
+§ 4 gilt nicht
+
+1. für die dem Schutzzweck entsprechende ordnungsgemäße Nutzung der landwirtschaftlichen Flächen mit den Maßgaben, dass 1.1 Maßnahmen zur Düngung und zum Einsatz von Bioziden der unteren Naturschutzbehörde spätestens sechs Wochen vor ihrer Durchführung schriftlich mit einer ausreichend detaillierten Maßnahmenbeschreibung (zum Beispiel durch Vorlage geeigneter betrieblicher Planungsunterlagen) anzuzeigen sind. Stellt die Naturschutzbehörde eine Unvereinbarkeit der Maßnahmen mit dem Schutzzweck nach § 3 fest, untersagt sie diese. Äußert sich die Naturschutzbehörde nicht innerhalb von sechs Wochen nach Eingang der Anzeige, gelten die Maßnahmen als unbeanstandet. Die Anzeige ist entbehrlich bei Abschluss von Vereinbarungen mit der unteren Naturschutzbehörde oder bei Teilnahme an Förderprogrammen des Freistaates Sachsen, welche diese Maßnahmen betreffen, soweit dadurch eine dem Schutzzweck entsprechende ordnungsgemäße landwirtschaftliche Nutzung gewährleistet ist. 1.2 § 4 Abs. 2 Nr. 4, 5, 7, 8, 9 und 14 unberührt bleiben. 2. für die dem Schutzzweck entsprechende, im Sinne des § 3 
+              SächsNatSchG umweltgerechte forstwirtschaftliche Nutzung der Forstflächen in der bisherigen Art und im bisherigen Umfang mit der Maßgabe, dass 2.1 eine vorhandene naturnahe Laubholzbestockung erhalten bleibt; 2.2 in naturnahen Laubholzbeständen keine Kahlhiebe vorgenommen werden; 2.3 die Verjüngung mit standortgerechten einheimischen Laubholzarten erfolgt; 2.4 in naturnah bestockten Waldbereichen natürliche Alters- und Zerfallsphasen des Bestands auf Teilflächen zugelassen werden (auf § 30 Abs. 2 des 
+              SächsWaldG wird verwiesen); 3. für die dem Schutzzweck entsprechende, ordnungsgemäße Ausübung der Jagd; 4. für die dem Schutzzweck entsprechende, umweltgerechte, ordnungsgemäße Fischereiausübung gemäß dem Fischereigesetz für den Freistaat Sachsen (Sächsisches Fischereigesetz – 
+              SächsFischG) vom 1. Februar 1993 (SächsGVBl. S. 109), das zuletzt durch Artikel 51 des Gesetzes vom 28. Juni 2001 (SächsGVBl. S. 426, 430) geändert worden ist; 5. für die dem Schutzzweck entsprechende Unterhaltung der Gewässer mit der Maßgabe, dass die Unterhaltung und Pflege der wasserbaulichen Anlagen ökologisch verträglich in Abstimmung mit der höheren Naturschutzbehörde erfolgt; 6. für die sonstige, bisher rechtmäßig ausgeübte Nutzung der Grundstücke, Straßen und Wege sowie der rechtmäßig bestehenden Einrichtungen in der bisherigen Art und im bisherigen Umfang sowie deren Unterhaltung und Erhaltung; 7. für Pflege- und Entwicklungsmaßnahmen, die von der unteren Naturschutzbehörde oder der von ihr beauftragten Stelle angeordnet werden; 8. für behördlich abgestimmte und genehmigte Tätigkeiten im Rahmen wissenschaftlicher Forschungsarbeiten; 9. für behördlich angeordnete oder zugelassene Beschilderungen oder Wegemarkierungen; 10. für die Erkundung und Beseitigung von Altlasten mit der Maßgabe, dass entsprechende Maßnahmen der unteren Naturschutzbehörde anzuzeigen sind; 11. für gesetzlich vorgesehene Vermessungsarbeiten; 12. für das Verlassen der öffentlichen Straßen und Wege sowie der markierten Wanderwege durch Pilzsucher in der Zeit vom 1. September bis zum 31. Oktober eines jeden Jahres; 13. für das Rodeln am Rodelberg Groitzsch. 
+## Verordnung des Regierungspräsidiums Leipzig zur Festsetzung des Naturschutzgebietes „Pfarrholz Groitzsch“ § 6 Schutz- und Pflegemaßnahmen
+
+(1) Nach Maßgabe der §§ 4 und 5 dieser Verordnung ist zur dauerhaften Sicherung und Weiterentwicklung der Schutzwürdigkeit des Schutzgebietes
+
+1. in Abstimmung mit den Nutzungsberechtigten eine äußerst pflegliche, im Wesentlichen auf Einzelstammnutzung orientierte Bewirtschaftung der naturnahen Wälder fortzuführen beziehungsweise zu entwickeln, die die vorhandene naturnahe Baumartenverteilung erhält, die auf eine merkliche Verbesserung der Altersstruktur, insbesondere durch die Herausbildung einer unteren Baumschicht sowie ferner auf eine Verringerung der Efeudeckung durch geeignete forstliche Pflegemaßnahmen abzielt, die Erosionsgefahr berücksichtigt, einen hohen Alt- und Totholzanteil sichert, naturnahe Waldrandstrukturen zulässt beziehungsweise entwickelt sowie nicht naturnah bestockte Waldflächen in naturnahe Bestände überführt; 2. in Abstimmung mit den Nutzungsberechtigten durch geeignete ersteinrichtende Maßnahmen auf der Fläche des Eichen-Hainbuchen-Hangwaldes eine Annäherung der Nährstoffverhältnisse im Oberboden an naturnahe Zustände herbeizuführen; 3. für die naturnahen Offenlandbiotope (Frischwiesen der Talaue und des Auenhanges, Halbtrockenrasen) eine biotopgerechte Pflege ein- beziehungsweise fortzuführen und durch regelmäßiges Monitoring weiter zu entwickeln sowie durch ersteinrichtende Maßnahmen die Grundlage für eine dem Schutzzweck entsprechende Biotopentwicklung zu schaffen; 4. für den langfristigen Erhalt der im Schutzgebiet vorhandenen Streuobstbestände Ersatzpflanzungen durchzuführen; 5. für das innerhalb des „Sebastiansgarten“ gelegene, stark verbrachte Grünland eine geeignete kontinuierliche Biotoppflege vorzusehen; 6. für die bisher intensiv genutzten Wiesen einvernehmlich mit den Eigentümern und Nutzungsberechtigten eine naturschutzgerechte Grünlandnutzung einzuleiten beziehungsweise zu entwickeln; 7. für die an Wälder, die Schwennigke oder andere naturnahe Biotope angrenzenden Ackerflächen (außerhalb des NSG) auf eine Bewirtschaftung hinzuwirken, die einen Nährstoff- oder Biozideintrag in die geschützten Bereiche verhindert; 8. die natürliche Entwicklung der Fließgewässer so weit wie möglich zuzulassen und, wo sinnvoll, diese durch gezielte, einvernehmlich mit den Betroffenen beziehungsweise den zuständigen Behörden abgestimmte Maßnahmen zu ermöglichen; 9. ein Besucher- und Wegekonzept aufzustellen, das die vorhandenen, für die störungsempfindlichen Tierarten wichtigen, beruhigten Bereiche erhält und entwickelt. (2) Der zu erstellende, naturschutzfachlich abzustimmende und fortzuschreibende Pflege- und Entwicklungsplan dient der Konkretisierung der in Absatz 1 aufgeführten Entwicklungsziele und bildet eine Grundlage für Pflege- und Entwicklungsmaßnahmen.
+
+(3) Die Durchführung von Pflege- und Entwicklungsmaßnahmen kann Eigentümern und Nutzungsberechtigten gemäß § 15 Abs. 5 
+SächsNatSchG auf Antrag übertragen werden. Ansonsten haben diese die Durchführung der im Pflege- und Entwicklungsplan enthaltenen Maßnahmen zu dulden.
+
+(4) Entschädigungsansprüche und Härtefallausgleichszahlungen werden nach den jeweils geltenden bundes- und landesgesetzlichen Bestimmungen geregelt.
+
+
+## Verordnung des Regierungspräsidiums Leipzig zur Festsetzung des Naturschutzgebietes „Pfarrholz Groitzsch“ § 7 Befreiungen
+
+(1) Von den Verboten dieser Verordnung kann die höhere Naturschutzbehörde nach § 53 
+            SächsNatSchG auf Antrag Befreiung erteilen, wenn
+
+1. die Durchführung der Vorschrift im Einzelfall a) zu einer nicht beabsichtigten Härte führen würde und die Abweichung mit den Belangen des Naturschutzes und der Landschaftspflege zu vereinbaren ist oder b) zu einer nicht gewollten Beeinträchtigung von Natur und Landschaft führen würde oder 2. überwiegende Gründe des Gemeinwohls die Befreiung erfordern. (2) Befreiungen können mit Nebenbestimmungen versehen werden.
+
+(3) Die Befreiung wird durch eine nach anderen Vorschriften gleichzeitig erforderliche Gestattung ersetzt, soweit nicht Bundesrecht entgegensteht. Die Gestattung darf nur erteilt werden, wenn die Voraussetzungen des Absatzes 1 vorliegen und die sonst zuständige Naturschutzbehörde ihr Einvernehmen erteilt hat. § 10 Abs. 1 Satz 2 
+SächsNatSchG gilt entsprechend.
+
+
+## Verordnung des Regierungspräsidiums Leipzig zur Festsetzung des Naturschutzgebietes „Pfarrholz Groitzsch“ § 8 Ordnungswidrigkeiten
+
+(1) Ordnungswidrig im Sinne § 61 Abs. 1 Nr. 1 
+            SächsNatSchG handelt, wer in dem NSG vorsätzlich oder fahrlässig, soweit § 5 nichts anderes bestimmt, entgegen § 4 Abs. 1 Handlungen vornimmt, die zu einer Zerstörung, Beschädigung oder Veränderung des Schutzgebietes oder seiner Bestandteile oder zu einer nachhaltigen Störung führen oder dem Schutzzweck nach § 3 zuwiderlaufen können.
+
+(2) Ordnungswidrig im Sinne des § 61 Abs. 1 Nr. 1 
+            SächsNatSchG handelt auch, wer in dem NSG vorsätzlich oder fahrlässig, soweit § 5 nichts anderes bestimmt,
+
+1. entgegen § 4 Abs. 2 Nr. 1 bauliche Anlagen im Sinne der 
+              Sächsischen Bauordnung errichtet, ändert, abbricht oder der Errichtung gleichgestellte Maßnahmen durchführt; 2. entgegen § 4 Abs. 2 Nr. 2 Straßen, Wege, Plätze oder sonstige Verkehrsanlagen anlegt oder Anlagen dieser Art verändert; 3. entgegen § 4 Abs. 2 Nr. 3 Leitungen ober- oder unterirdisch verlegt oder Anlagen dieser Art verändert; 4. entgegen § 4 Abs. 2 Nr. 4 Abgrabungen, Aufschüttungen, Verfüllungen oder sonstige Handlungen vornimmt, die den Boden in seiner Gestalt, Struktur oder Beschaffenheit verändern oder verändern können; 5. entgegen § 4 Abs. 2 Nr. 5 Abfälle, insbesondere Garten- oder Ernteabfälle oder sonstige Materialien lagert oder ablagert; 6. entgegen § 4 Abs. 2 Nr. 6 Stoffe, Mittel oder Chemikalien einbringt, anwendet oder lagert; 7. entgegen § 4 Abs. 2 Nr. 7 Handlungen vornimmt, die den Wasserhaushalt des Gebietes oder einzelner Gebietsteile verändern können; 8. entgegen § 4 Abs. 2 Nr. 8 Oberflächengewässer und Grundwasser verunreinigt; 9. entgegen § 4 Abs. 2 Nr. 9 Dauergrünland umbricht, ackerbaulich nutzt oder aufforstet; 10. entgegen § 4 Abs. 2 Nr. 10 Pflanzen oder Pflanzenteile einbringt, entnimmt, beschädigt oder auf andere Weise in ihrem Wachstum und in ihrer Entwicklung gefährdet oder zerstört; 11. entgegen § 4 Abs. 2 Nr. 11 Tiere einbringt, wild lebenden Tieren nachstellt, sie beunruhigt, fängt, verletzt oder tötet oder Puppen, Larven, Eier oder Nester oder sonstige Brut-, Wohn- oder Zufluchtsstätten dieser Tiere entfernt, beschädigt oder zerstört; 12. entgegen § 4 Abs. 2 Nr. 12 Plakate, Schilder, Bild- oder Schrifttafeln oder sonstige Werbeanlagen aufstellt oder anbringt; 13. entgegen § 4 Abs. 2 Nr. 13 Markierungszeichen aufstellt oder auf im Schutzgebiet befindliche Objekte aufzeichnet; 14. entgegen § 4 Abs. 2 Nr. 14 die bisherige Grundstücksnutzung in einer Art ändert, welche dem Schutzzweck zuwiderläuft; 15. entgegen § 4 Abs. 2 Nr. 15 zeltet, lagert, Wohnwagen oder -mobile, sonstige Fahrzeuge oder Verkaufsstände oder Warenautomaten aufstellt; 16. entgegen § 4 Abs. 2 Nr. 16 Flächen außerhalb der öffentlichen Straßen und Wege sowie der markierten Wanderwege betritt, auf ihnen reitet, mit motorgetriebenen oder bespannten Fahrzeugen fährt; 17. entgegen § 4 Abs. 2 Nr. 17 Motor- oder Flugsport, einschließlich Modellflugsport, jeglicher Art betreibt; 18. entgegen § 4 Abs. 2 Nr. 18 Fahrzeuge, Maschinen oder Geräte wäscht oder reinigt; 19. entgegen § 4 Abs. 2 Nr. 19 Feuer anmacht und unterhält; 20. entgegen § 4 Abs. 2 Nr. 20 die Gewässer mit Wasserfahrzeugen jeglicher Art befährt; 21. entgegen § 4 Abs. 2 Nr. 21 Hunde frei laufen lässt; 22. entgegen § 4 Abs. 2 Nr. 22 Lärm, Erschütterungen oder Luftverunreinigungen verursacht oder Lichtquellen betreibt, die geeignet sind, Tiere zu beunruhigen oder den Naturgenuss zu beeinträchtigen. (3) Ordnungswidrig im Sinne des § 61 Abs. 1 Nr. 1 
+            SächsNatSchG handelt weiterhin, wer vorsätzlich oder fahrlässig
+
+1. nach § 5 zulässige Handlungen über den durch die Maßgabe gesetzten Rahmen hinaus durchführt und somit gegen die Verbote des § 4 verstößt, 2. einer Einzelanordnung nach § 16 Abs. 4 
+              SächsNatSchG zuwiderhandelt, 3. einer vollziehbaren Nebenbestimmung zuwiderhandelt, mit der eine nach § 7 erteilte Befreiung versehen worden ist. (4) Ordnungswidrig im Sinne des § 61 Abs. 1 Nr. 1 
+            SächsNatSchG handelt des Weiteren auch, wer in dem Naturschutzgebiet vorsätzlich oder fahrlässig entgegen § 5 Nr. 1.1 Maßnahmen zur Düngung oder zum Biozideinsatz durchführt, ohne diese spätestens sechs Wochen vorher der unteren Naturschutzbehörde anzuzeigen.
+
+
+## Verordnung des Regierungspräsidiums Leipzig zur Festsetzung des Naturschutzgebietes „Pfarrholz Groitzsch“ § 9 Übergangsregelung
+
+Soweit nach Inkrafttreten der Verordnung des Regierungspräsidiums Leipzig zur Änderung der Verordnung zur Festsetzung des Naturschutzgebietes „Pfarrholz Groitzsch“ vom 11. April 2007 (SächsABl. SDr. S. S 329) Maßnahmen einer Anzeigepflicht gemäß § 5 Nr. 1.1 unterliegen, die bisher verfahrensfrei waren, dürfen diese Maßnahmen bis zum 31. Dezember 2007 in bisheriger Art und im bisherigen Umfang auch ohne Erstattung einer Anzeige bei der unteren Naturschutzbehörde durchgeführt werden.
+
+
+## Verordnung des Regierungspräsidiums Leipzig zur Festsetzung des Naturschutzgebietes „Pfarrholz Groitzsch“ § 10 In-Kraft-Treten
+
+(1) Diese Verordnung tritt am Tage nach Ablauf der Auslegungsfrist gemäß § 2 Abs. 4 dieser Verordnung in Kraft.
+
+(2) Mit In-Kraft-Treten dieser Verordnung treten die „Anordnung Nr. 1 über Naturschutzgebiete“ vom 30. März 1961 (GBl. DDR II, Nr. 27/61) und der Beschluss des Bezirkstages Leipzig (Nr. 68/VIII/84) vom 20. September 1984, soweit sie sich auf Teile der in § 2 beschriebenen Fläche beziehen, außer Kraft.
+
+Leipzig, den 27. Juni 2002
+
+Regierungspräsidium Leipzig 
+               Steinbach 
+               Regierungspräsident
+
+Verkündungshinweis:
+
+Gemäß § 51 Abs. 10 
+SächsNatSchG ist eine Verletzung der Verfahrensvorschriften unbeachtlich, wenn sie nicht innerhalb eines Jahres nach Verkündigung der Rechtsverordnung schriftlich unter Angabe der Tatsachen, der die Verletzung begründen soll, bei der höheren Naturschutzbehörde, die die Rechtsverordnung erlassen hat, geltend gemacht wird.
+
+Übersichtskarte
+

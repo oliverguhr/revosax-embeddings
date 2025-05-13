@@ -1,0 +1,56 @@
+# VwV Zertifizierung von Fremdsprachenkenntnissen
+
+Verwaltungsvorschriftdes Sächsischen Staatsministeriums für Kultuszur Durchführung von Prüfungen zur Zertifizierung vonFremdsprachenkenntnissen in der beruflichen Bildung im Freistaat Sachsen(VwV Zertifizierung von Fremdsprachenkenntnissen)
+
+## VwV Zertifizierung von Fremdsprachenkenntnissen I. Vorbemerkung
+
+Die Zertifizierung von Fremdsprachenkenntnissen ist ein fakultatives Angebot innerhalb der beruflichen Bildung nach Maßgabe der Rahmenvereinbarung über die Zertifizierung von Fremdsprachenkenntnissen in der beruflichen Bildung (Beschluss der KMK vom 20. November 1998 in der Fassung vom 14. September 2017).
+
+
+## VwV Zertifizierung von Fremdsprachenkenntnissen II. Geltungsbereich
+
+Diese Verwaltungsvorschrift gilt für Schulen in öffentlicher Trägerschaft sowie für staatlich anerkannte Ersatzschulen in freier Trägerschaft. Die Schulen entscheiden über das Angebot von Zertifikatsprüfungen im Rahmen ihrer personellen Ressourcen. Teilnahmeberechtigt sind Schüler, die sich zum Zeitpunkt der Anmeldung in einem aktiven Schulverhältnis an der jeweiligen Schule befinden.
+
+
+## VwV Zertifizierung von Fremdsprachenkenntnissen III. Prüfungsanmeldung
+
+1. Die Prüfungstermine werden in der VwV Bedarf und Schuljahresablauf veröffentlicht. Die Anmeldung zur Prüfung erfolgt bei der Schulleitung durch den Schüler oder bei minderjährigen Schülern durch die Eltern bis spätestens 30. November des Schuljahres, in dem die Prüfung absolviert wird (Anlage 1). 2. Den Termin der mündlichen Prüfung legen die Schulen im Rahmen des festgelegten Prüfungszeitraums fest. Dieser ist dem Schüler unverzüglich mitzuteilen. Sofern notwendig, beantragt der Schüler eine Freistellung vom Ausbildungsbetrieb (Anlage 2), welche an den Ausbildungsbetrieb über den Schulleiter weitergeleitet wird (Anlage 3). 3. Das Erfassen der Prüfungsteilnehmer erfolgt durch die Schulleitung über das Schulportal bis zum 12. Dezember. Die Standorte des Landesamtes für Schule und Bildung prüfen die Eingaben im Schulportal bis zum 20. Dezember. 
+## VwV Zertifizierung von Fremdsprachenkenntnissen IV. Prüfungsverfahren
+
+1. An jeder Schule wird ein Prüfungsausschuss gebildet. Mitglieder des Prüfungsausschusses sind als Vorsitzender der Schulleiter, als sein Vertreter der stellvertretende Schulleiter oder eine vom Schulleiter beauftragte Lehrkraft und alle Lehrkräfte, die vom Schulleiter mit der Durchführung der Zertifikatsprüfung beauftragt wurden. 2. Der Vorsitzende benennt den Korrektor für die schriftlichen Prüfungen sowie jeweils einen Prüfer und einen Protokollanten für die mündlichen Prüfungen. Die Protokoll führenden Lehrkräfte müssen Lehrer der jeweiligen Fremdsprache sein. 3. Kann die Prüfung aus Gründen fehlender personeller Ressourcen nicht an dem Beruflichen Schulzentrum durchgeführt werden, an dem der Schüler seinen Antrag gestellt hat, ist im Rahmen der Kooperation zu prüfen, ob der Schüler zur Prüfungsteilnahme an ein anderes Berufliches Schulzentrum vermittelt werden kann oder die Prüfung mit Fremdsprachenlehrern eines anderen Beruflichen Schulzentrums durchgeführt wird. 4. Nachteilsausgleich a) Im Prüfungsverfahren sind die besonderen Belange von Schülern mit Behinderung zu berücksichtigen. Eine Behinderung im Sinne von Satz 1 ist eine über einen Zeitraum von sechs Monaten hinausgehende diagnostizierte gesundheitliche Beeinträchtigung, die zu einer verminderten Leistungsfähigkeit des Schülers im Vergleich zu seinen gleichaltrigen Mitschülern ohne Behinderung führt. Gesundheitliche Beeinträchtigungen, die unmittelbar vor oder während des Prüfungsverfahrens auftreten, sind einer Behinderung gemäß Satz 1 gleichgestellt. b) Auf Antrag des Prüfungsteilnehmers, der beim Schulleiter zu stellen ist, legt die Prüfungskommission geeignete Maßnahmen hinsichtlich Organisation und Gestaltung der Prüfung fest. Der gewährte Nachteilsausgleich soll die Belange des Prüfungsteilnehmers mit Behinderung berücksichtigen, jedoch die Prüfungsanforderungen qualitativ nicht verändern. c) Der Antrag soll mit der Anmeldung spätestens bis zum 30. November des Schuljahres, in dem die Prüfung absolviert wird, gestellt werden. Liegen die Voraussetzungen für die Gewährung eines Nachteilsausgleichs erst zu einem späteren Zeitpunkt vor, ist der Antrag unverzüglich zu stellen. d) Sind Adaptionen der Prüfungsaufgaben notwendig, informiert der Schulleiter den zuständigen Standort des Landesamtes für Schule und Bildung hierüber bis spätestens 15. Dezember. Die Information ist durch das Landesamt für Schule und Bildung bis zum 5. Januar an das Staatsministerium für Kultus weiterzuleiten. Später eingehende Informationen über die Notwendigkeit einer Adaption können nur im Rahmen der zur Verfügung stehenden personellen Ressourcen berücksichtigt werden. 5. Schriftliche Prüfung a) Für die schriftliche Prüfung werden durch das Staatsministerium für Kultus zentrale Aufgaben gestellt. Hinweise zu den Prüfungsanforderungen und zur Durchführung enthält Anlage 4. b) Die zentrale schriftliche Prüfung beginnt am Prüfungstag um 9.00 Uhr. Die Dauer der Prüfung beträgt 90 Minuten (Niveau B1) oder 120 Minuten (Niveau B2). c) Die Korrektur der schriftlichen Arbeit erfolgt durch eine Lehrkraft, die in der jeweiligen Fremdsprache unterrichtet. Ist die schriftliche Prüfung nicht bestanden, beauftragt der Vorsitzende des Prüfungsausschusses eine zweite Lehrkraft der jeweiligen Fremdsprache mit der Zweitkorrektur. Bei abweichenden Korrekturergebnissen zwischen Erst- und Zweitkorrektor wird die Prüfungsnote als arithmetisches Mittel aus den beiden Korrekturergebnissen gebildet. Ergibt dies keine volle Punktzahl, ist bei n,5 aufzurunden. 6. Mündliche Prüfung a) Zuständig für die Durchführung der mündlichen Prüfung ist das jeweilige Berufliche Schulzentrum. Die Prüfungsaufgaben erarbeiten die Schulen nach den Vorgaben des Staatsministeriums für Kultus (Anlage 4). Die mündliche Prüfung soll als Partnerprüfung von zwei Schülern durchgeführt werden und beträgt in Abhängigkeit des Referenzniveaus 20 Minuten (Niveau B1) oder 25 Minuten (Niveau B2). Fehlt ein zweiter Schüler, tritt an seine Stelle ein Fachlehrer, der die Rolle des Gesprächspartners übernimmt. Festlegungen zur Gewährung einer Vorbereitungszeit enthält Anlage 4. b) Das Ergebnis der mündlichen Prüfung ist dem Schüler unmittelbar nach der Prüfung mitzuteilen. 7. Zugelassene Hilfsmittel a) Für die schriftliche Prüfung ist ein allgemeines zweisprachiges, nichtelektronisches Wörterbuch Deutsch – Fremdsprache/Fremdsprache – Deutsch zur Verfügung zu stellen. b) Während der mündlichen Prüfung sind keine Hilfsmittel zugelassen. Die Verwendung eines nichtelektronischen Wörterbuchs Deutsch – Fremdsprache/Fremdsprache – Deutsch in der Vorbereitungszeit ist zulässig. c) Prüfungsteilnehmer, deren Herkunftssprache nicht Deutsch ist, können zusätzlich zu den Festlegungen in den Buchstaben a und b ein zweisprachiges, nichtelektronisches Wörterbuch Deutsch – Herkunftssprache/Herkunftssprache – Deutsch verwenden, sofern dieses als Druckwerk verfügbar ist. 8. Protokoll a) Über die schriftliche Prüfung ist ein Protokoll zu fertigen, das insbesondere Angaben über Beginn und Ende der Prüfung, die Belehrungen über die Bestimmungen hinsichtlich von Täuschungshandlungen und Ordnungsverstößen sowie über besondere Vorkommnisse enthält. Es ist von den Aufsicht führenden Lehrkräften zu unterschreiben. b) Das Protokoll der mündlichen Prüfung muss über die Prüfungsaufgaben und die wesentlichen für die Bewertung maßgeblichen Gründe Auskunft geben sowie das Ergebnis der mündlichen Prüfung enthalten. 9. Die Zertifikatsprüfung ist bestanden, wenn jeweils in der schriftlichen Prüfung und in der mündlichen Prüfung mindestens die Hälfte der erreichbaren Punkte erzielt wurde. Ein Ausgleich zwischen schriftlicher und mündlicher Prüfung ist nicht möglich. 10. Eine Täuschungshandlung liegt vor, wenn ein Schüler durch das Mitführen nicht zugelassener Hilfsmittel, durch die Hilfe eines Dritten oder durch die Hilfe für einen Dritten das Ergebnis einer Prüfung oder eines Prüfungsteils beeinflusst. Liegt eine Täuschungshandlung vor, so gilt die Prüfung als nicht bestanden. Behindert ein Schüler durch sein Verhalten eine Prüfung so, dass es nicht möglich ist, diese ordnungsgemäß durchzuführen, wird er von dieser Prüfung ausgeschlossen. Stellt sich nach Aushändigen des Zertifikates eine Täuschungshandlung heraus, kann der zuständige Standort des Landesamtes für Schule und Bildung die Prüfungsentscheidung zurücknehmen und das Zertifikat einziehen. Die Schüler sind vor Beginn der Prüfung auf diese Bestimmungen hinzuweisen. 11. Ein Anspruch auf Nach- oder Wiederholungsprüfung besteht nicht. Bei Nichtbestehen der Prüfung oder unverschuldeter Verhinderung der Teilnahme, insbesondere bei Krankheit, kann eine erneute Teilnahme für das nachfolgende Schuljahr beantragt werden, sofern der Antragsteller zu diesem Zeitpunkt weiterhin Schüler einer berufsbildenden Schule im Freistaat Sachsen ist. 
+## VwV Zertifizierung von Fremdsprachenkenntnissen V. Prüfungsergebnisse
+
+1. Das Zertifikat wird in A4-Format erstellt und enthält vier Seiten, die auf einem A3-Bogen oder auf zwei A4-Bögen gedruckt werden. Für den Druck ist ein dokumentenechter Laserdrucker und verstärktes Papier von mindestens 120 Gramm/Quadratmeter zu verwenden. Die Mustervorlage (Anlage 5) ist auf dem Bildungsserver bereitgestellt. Das Zertifikat trägt das Datum des Ausgabetages. Zeichnungsberechtigt ist der Schulleiter. Die Übergabe erfolgt bis spätestens 15. September des auf die Prüfung folgenden Schuljahres. 2. Die Prüfungsergebnisse werden von den Schulen bis zum 15. September des auf die Prüfung folgenden Schuljahres im Schulportal eingestellt. Die Überprüfung der Eingaben im Schulportal erfolgt durch die zuständigen Standorte des Landesamtes für Schule und Bildung bis zum 25. September. 
+## VwV Zertifizierung von Fremdsprachenkenntnissen VI. Inkrafttreten
+
+Diese Verwaltungsvorschrift tritt am 16. September 2018 in Kraft. Gleichzeitig tritt die VwV Zertifizierung von Fremdsprachenkenntnissen vom 21. März 2016 (MBl. SMK S. 226), enthalten in der Verwaltungsvorschrift vom 11. Dezember 2017 (SächsABl. SDr. S. S 409), außer Kraft.
+
+Dresden, den 30. Juli 2018
+
+Der Staatsminister für Kultus
+Christian Piwarz
+
+
+## VwV Zertifizierung von Fremdsprachenkenntnissen Anlagen
+
+Anlage 1 Zertifizierung von Fremdsprachenkenntnissen in der beruflichen Bildung im Freistaat Sachsen
+
+Anlage 2Prüfung zur Zertifizierung von Fremdsprachenkenntnissen in der beruflichen Bildung im Freistaat Sachsen
+
+Anlage 3Musteranschreiben
+
+Anlage 4Schriftliche und mündliche Prüfungen Niveau B1 und B2
+
+Anlage 4.1Kompetenzbeschreibungen des KMK-Fremdsprachenzertifikats für Niveau B1 und B2
+
+Anlage 4.2Deskriptoren zur Bewertung produktiver Leistungen für Niveau B1 und B2 (30 Punkte)
+
+Anlage 4.3Deskriptoren zur Bewertung mediativer Leistungen aus der Fremdsprache ins Deutsche für Niveau B1 und B2
+(30 Punkte)
+
+Anlage 4.4Deskriptoren zur Bewertung mediativer Leistungen aus dem Deutschen in die Fremdsprache für Niveau B1 und B2 (30 Punkte)
+
+Anlage 4.5Deskriptoren zur Bewertung interaktiver Leistungen für Niveau B1 und B2 (30 Punkte)
+
+Anlage 5Fremdsprachenzertifikat
+

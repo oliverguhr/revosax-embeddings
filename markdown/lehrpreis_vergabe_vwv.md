@@ -1,0 +1,35 @@
+# Verwaltungsvorschrift des Sächsischen Staatsministeriums für Wissenschaft, Kultur und Tourismus zur Vergabe des Sächsischen Lehrpreises
+
+Verwaltungsvorschriftdes Sächsischen Staatsministeriumsfür Wissenschaft, Kultur und Tourismuszur Vergabe des Sächsischen Lehrpreises
+
+## Verwaltungsvorschrift des Sächsischen Staatsministeriums für Wissenschaft, Kultur und Tourismus zur Vergabe des Sächsischen Lehrpreises I. Gegenstand und Ziel des Preises
+
+1. Das Staatsministerium für Wissenschaft, Kultur und Tourismus lobt den „Landeslehrpreis des Sächsischen Staatsministeriums für Wissenschaft, Kultur und Tourismus“ (Sächsischer Lehrpreis) aus. Der Sächsische Lehrpreis wird Lehrenden an Hochschulen gemäß § 1 Absatz 1 des Sächsischen Hochschulfreiheitsgesetzes in der Fassung der Bekanntmachung vom 15. Januar 2013 (SächsGVBl. S. 3), das zuletzt durch das Gesetz vom 1. Juni 2022 (SächsGVBl. S. 381) geändert worden ist, in der jeweils geltenden Fassung, und Lehrenden an der Berufsakademie Sachsen in Anerkennung besonders guter und innovativer Lehre verliehen. 2. Mit dem Sächsischen Lehrpreis werden Leistungen der Lehrenden an den sächsischen Hochschulen und der Berufsakademie Sachsen gewürdigt. Er symbolisiert die Bedeutung exzellenter Lehre für den Wissenschafts- und Kulturstandort Sachsen und würdigt den unverzichtbaren Beitrag der Hochschulen und der Berufsakademie Sachsen zur Ausbildung des wissenschaftlichen und künstlerischen Nachwuchses und hochqualifizierter Fachkräfte. 
+## Verwaltungsvorschrift des Sächsischen Staatsministeriums für Wissenschaft, Kultur und Tourismus zur Vergabe des Sächsischen Lehrpreises II. Ausschreibung und Auswahlkriterien
+
+1. Der Sächsische Lehrpreis wird vom Staatsministerium für Wissenschaft, Kultur und Tourismus auf dessen Internetseite (www.smwk.sachsen.de) ausgeschrieben. Die Auswahlkriterien werden mit Veröffentlichung der Ausschreibung bekannt gegeben. 2. Der Sächsische Lehrpreis kann unter ein Jahresthema gestellt werden. 
+## Verwaltungsvorschrift des Sächsischen Staatsministeriums für Wissenschaft, Kultur und Tourismus zur Vergabe des Sächsischen Lehrpreises III. Kategorien und Dotierung
+
+1. Der Preis wird je einmal in den Kategorien Universitäten, Fachhochschulen – Hochschulen für angewandte Wissenschaften, Kunsthochschulen und Berufsakademie Sachsen an Lehrpersonen verliehen, die sich durch exzellente Lehre in Form der bekannt gegebenen Kriterien auszeichnen. 2. Der Sächsische Lehrpreis ist mit insgesamt 40 000 Euro dotiert. Es wird pro Kategorie ein Preisgeld in Höhe von 10 000 Euro vergeben. Im Fall mehrerer Preisträger je Kategorie wird das Preisgeld paritätisch verteilt. 3. Der Sächsische Lehrpreis wird in Form von Urkunden durch das Staatsministerium für Wissenschaft, Kultur und Tourismus überreicht. 4. Das Preisgeld kann nach freier Entscheidung der Preisträgerinnen und Preisträger verwendet werden. 
+## Verwaltungsvorschrift des Sächsischen Staatsministeriums für Wissenschaft, Kultur und Tourismus zur Vergabe des Sächsischen Lehrpreises IV. Vorschlagsbedingungen
+
+1. In jeder Kategorie können sowohl Einzelpersonen als auch Gruppen von Lehrenden an einer Hochschule gemäß § 1 Absatz 1 des Sächsischen Hochschulfreiheitsgesetzes beziehungsweise der Berufsakademie Sachsen mit in der Regel nicht mehr als fünf Personen vorgeschlagen werden. 2. Die vorgeschlagenen Lehrpersonen müssen zum Zeitpunkt der Einreichung des Vorschlages zur Vergabe des Sächsischen Lehrpreises an der jeweiligen Hochschule gemäß § 1 Absatz 1 des Sächsischen Hochschulfreiheitsgesetzes oder der Berufsakademie Sachsen eine Lehrtätigkeit innegehabt haben. Personen, die bereits einmal mit dem Sächsischen Lehrpreis ausgezeichnet worden sind, dürfen nicht erneut vorgeschlagen werden. 
+## Verwaltungsvorschrift des Sächsischen Staatsministeriums für Wissenschaft, Kultur und Tourismus zur Vergabe des Sächsischen Lehrpreises V. Vorschlagsverfahren
+
+1. Die Vorschläge werden beim Hochschuldidaktischen Zentrum Sachsen eingereicht. Eigenbewerbungen sind zulässig. Dem Vorschlag ist mindestens eine geeignete Referenz für die Lehrtätigkeit beizufügen. 2. Informationen zur Einreichung der Vorschlagsunterlagen, zu Terminen und Abgabefristen sowie gegebenenfalls zum jeweiligen Jahresthema werden mit der Ausschreibung bekannt gegeben. 
+## Verwaltungsvorschrift des Sächsischen Staatsministeriums für Wissenschaft, Kultur und Tourismus zur Vergabe des Sächsischen Lehrpreises VI. Jury
+
+1. Eine vom Staatsministerium für Wissenschaft, Kultur und Tourismus berufene Jury wählt aus den eingereichten Vorschlägen die Preisträgerinnen und Preisträger in jeder Kategorie aus. 2. Die Jury setzt sich aus mindestens sieben und maximal 15 Mitgliedern zusammen, wobei eine ungerade Anzahl der stimmberechtigten Mitglieder sicherzustellen ist. Neben jeweils einer Vertreterin oder einem Vertreter des Staatsministeriums für Wissenschaft, Kultur und Tourismus und des Hochschuldidaktischen Zentrums Sachsen besteht die Jury aus jeweils einer Studierendenvertreterin oder einem Studierendenvertreter der Hochschulen gemäß § 1 Absatz 1 des Sächsischen Hochschulfreiheitsgesetzes und der Berufsakademie Sachsen. Die weiteren Jurymitglieder dürfen nicht einer Hochschule gemäß § 1 Absatz 1 des Sächsischen Hochschulfreiheitsgesetzes und nicht der Berufsakademie Sachsen angehören. Das Jurymitglied des Staatsministeriums für Wissenschaft, Kultur und Tourismus führt den Vorsitz. 3. Die Jurymitglieder erfüllen ihre Aufgaben unparteiisch und sind zur Verschwiegenheit verpflichtet. Sie sind als Preisträger ausgeschlossen. Die Beratungen sind nicht öffentlich. Die Vorschläge werden mit einfacher Stimmenmehrheit gefasst und sind zu begründen. Die Vertreterinnen und Vertreter des Staatsministeriums für Wissenschaft, Kultur und Tourismus und des Hochschuldidaktischen Zentrums Sachsen nehmen beratend und ohne Stimmrecht an den Sitzungen der Jury teil. 
+## Verwaltungsvorschrift des Sächsischen Staatsministeriums für Wissenschaft, Kultur und Tourismus zur Vergabe des Sächsischen Lehrpreises VII. Verleihung
+
+Der Sächsische Lehrpreis wird in der Regel alle zwei Jahre durch das Staatsministerium für Wissenschaft, Kultur und Tourismus auf Grundlage der Vorschläge der Jury verliehen. Der Ort der Verleihung wird durch das Staatsministerium für Wissenschaft, Kultur und Tourismus bekannt gegeben. Ein Rechtsanspruch auf die Vergabe des Preises besteht nicht.
+
+
+## Verwaltungsvorschrift des Sächsischen Staatsministeriums für Wissenschaft, Kultur und Tourismus zur Vergabe des Sächsischen Lehrpreises VIII. Inkrafttreten, Außerkrafttreten
+
+Diese Verwaltungsvorschrift tritt am Tag nach der Veröffentlichung in Kraft. Gleichzeitig tritt die Verwaltungsvorschrift des Sächsischen Staatsministeriums für Wissenschaft und Kunst zur Vergabe des Sächsischen Lehrpreises vom 11. November 2017 (SächsABl. S. 1584), zuletzt enthalten in der Verwaltungsvorschrift vom 2. Dezember 2021 (SächsABl. SDr. S. S 219), außer Kraft.
+
+Dresden, den 23. Februar 2023
+
+Der Staatsminister für Wissenschaft, Kultur und TourismusSebastian Gemkow
+

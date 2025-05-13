@@ -1,0 +1,18 @@
+# Zuständigkeitsverordnung Tierische Nebenprodukte
+
+Verordnung des Sächsischen Staatsministeriums für Soziales und Verbraucherschutz über die Zuständigkeiten zur Durchführung gemeinschaftsrechtlicher und nationaler Vorschriften für die Verarbeitung und Beseitigung von nicht für den menschlichen Verzehr bestimmten tierischen Nebenprodukten (Zuständigkeitsverordnung Tierische Nebenprodukte – SächsTierNebZuVO)
+
+## Zuständigkeitsverordnung Tierische Nebenprodukte § 1  Zuständige Behörden
+
+Zuständige Behörden sind:
+
+1. das Staatsministerium für Soziales und Verbraucherschutz für die a) Zulassung der Beseitigung tierischer Nebenprodukte nach Artikel 19 Absatz 1 Buchstabe b, c und e der Verordnung (EG) Nr. 1069/2009 des Europäischen Parlaments und des Rates vom 21. Oktober 2009 mit Hygienevorschriften für nicht für den menschlichen Verzehr bestimmte tierische Nebenprodukte und zur Aufhebung der Verordnung (EG) Nr. 1774/2002 (Verordnung über tierische Nebenprodukte) (ABl. L 300 vom 14.11.2009, S. 1), die zuletzt durch die Verordnung (EU) Nr. 1385/2013 (ABl. L 354 vom 28.12.2013, S. 86) geändert worden ist, in der jeweils geltenden Fassung, b) Mitwirkung am Verfahren nach Artikel 20 Absatz 2, 3 und 8 der Verordnung (EG) Nr. 1069/2009, c) Entgegennahme der Information an die zuständige Behörde des Bestimmungsmitgliedstaats nach Artikel 48 Absatz 1 Satz 1 der Verordnung (EG) Nr. 1069/2009 und Entscheidung nach Artikel 48 Absatz 1 Satz 2 der Verordnung (EG) Nr. 1069/2009, d) Gestattung von Einfuhren und Durchfuhren nach den Artikeln 26 und 27 Nummer 1 sowie Artikel 28 Nummer 1 und 3 der Verordnung (EU) Nr. 142/2011 der Kommission vom 25. Februar 2011 zur Durchführung der Verordnung (EG) Nr. 1069/2009 des Europäischen Parlaments und des Rates mit Hygienevorschriften für nicht für den menschlichen Verzehr bestimmte tierische Nebenprodukte sowie zur Durchführung der Richtlinie 97/78/EG des Rates hinsichtlich bestimmter gemäß der genannten Richtlinie von Veterinärkontrollen an der Grenze befreiter Proben und Waren (ABl. L 54 vom 26.2.2011, S. 1), die zuletzt durch die Verordnung (EU) 2019/319 (ABl. L 61 vom 28.2.2019, S. 1) geändert worden ist, in der jeweils geltenden Fassung, e) Meldungen nach § 26 Absatz 2 der Tierische Nebenprodukte-Beseitigungsverordnung vom 27. Juli 2006 (BGBl. I S. 1735), die zuletzt durch Artikel 3 des Gesetzes vom 4. Dezember 2018 (BGBl. I S. 2254) geändert worden ist, in der jeweils geltenden Fassung; 2. die Landesdirektion Sachsen für die a) Zulassung von Anlagen oder Betrieben nach Artikel 24 Absatz 1 Buchstabe a bis d der Verordnung (EG) Nr. 1069/2009 für Material der Kategorie 1 und der Kategorie 2, b) Gestattung alternativer Verarbeitungsparameter für Biogas- und Kompostieranlagen nach Artikel 10 Nummer 3 der Verordnung (EU) Nr. 142/2011, c) Erteilung einer Zulassungs- und Registriernummer sowie Erfassung von zugelassenen und registrierten Anlagen in einem Register nach § 26  		Absatz 1 der Tierische Nebenprodukte-Beseitigungsverordnung, d) Genehmigung von Verarbeitungsmethoden und die übrigen Maßnahmen nach Anhang IV Kapitel III Buchstabe G der Verordnung (EU) Nr. 142/2011, e) Genehmigung der Verwendung zu Forschungszwecken und anderen spezifischen Zwecken nach Artikel 17 der Verordnung (EG) Nr. 1069/2009, f) Genehmigung der Verwendung zu besonderen Fütterungszwecken nach Artikel 18 der Verordnung (EG) Nr. 1069/2009. 
+## Zuständigkeitsverordnung Tierische Nebenprodukte § 2  Inkrafttreten
+
+Diese Verordnung tritt am Tage nach ihrer Verkündung in Kraft.
+
+Dresden, den 3. Dezember 2013
+
+Die Staatsministerin für Soziales und Verbraucherschutz 
+           Christine Clauß
+

@@ -1,0 +1,15 @@
+# Erlaß des Staatsministeriums für Soziales, Gesundheit und Familie über die Bildung eines Beirates für Tierschutz
+
+Erlass des Staatsministers für Soziales, Gesundheit und Familie über die Bildung eines Beirates für Tierschutz
+
+## Erlaß des Staatsministeriums für Soziales, Gesundheit und Familie über die Bildung eines Beirates für Tierschutz Erlass
+
+Vom 14. Oktober 1992
+
+1. Zur Beratung des Staatsministers für Soziales, Gesundheit und Familie (Staatsminister) in Fragen des Tierschutzes wird ein „Beirat für Tierschutz“ gebildet. Der Beirat soll über grundsätzliche Fragen des Tierschutzes, mit denen der Staatsminister befasst ist, unterrichtet und dazu gehört werden. 2. Der Beirat besteht aus – einem Vertreter des Sächsischen Staatsministeriums für Soziales, Gesundheit und Familie als Vorsitzenden – einem Vertreter des Landestierschutzverbandes Sachsen e.V. – je einem Vertreter eines örtlichen Tierschutzvereins e.V. aus den Regierungsbezirken Chemnitz, Dresden und Leipzig – einem Vertreter der Veterinärmedizinischen Fakultät der Universität Leipzig – einem Vertreter des Fachbereichs Biowissenschaften der Universität Leipzig – einem Vertreter des Sächsischen Staatsministeriums für Landwirtschaft, Ernährung und Forsten – einem Vertreter des Sächsischen Landesbauernverbandes e.V. – einem Vertreter des Verbandes der privaten Landwirte und Grundstückseigentümer Sachsen e.V. – einem Vertreter der Sächsischen Landestierärztekammer. 3. Die Mitglieder des Beirates werden vom Staatsminister für die Dauer der jeweiligen Legislaturperiode des Sächsischen Landtages berufen. Eine erneute Berufung ist zulässig. Scheidet ein Mitglied vor Ablauf der jeweiligen Amtszeit aus oder wird es abberufen, so beruft der Staatsminister auf Empfehlung des Beirates gemäß Nummer 2 einen Nachfolger für den Rest der Amtszeit. 4. Die Mitglieder des Beirates sind ehrenamtlich tätig. Sie erhalten Reisekostenvergütung, Sitzungsentschädigung und Verdienstausfall nach der Verwaltungsvorschrift des Sächsischen Staatsministeriums der Finanzen über die Abfindung der Mitglieder von Beiräten, Ausschüssen und Kommissionen in der Landesverwaltung (
+          VwV-Beiratsentschädigung) vom 14. März 1997 (SächsABl. S. 417). Diese wird im Rahmen der im Haushalt des Sächsischen Staatsministeriums für Soziales, Gesundheit und Familie zur Verfügung stehenden Mittel finanziert. 5. Der Beirat gibt sich eine Geschäftsordnung. Er wird vom Vorsitzenden in der Regel zweimal jährlich einberufen. Er ist auch einzuberufen, wenn mehr als die Hälfte der Mitglieder dies unter Vorlage eines Vorschlages für die Tagesordnung schriftlich beantragen. 6. Der Vorsitzende kann themenorientiert weitere Sachverständige zu einer Sitzung einladen. Solche Personen sind auch einzuladen, wenn dies von mehr als der Hälfte der Mitglieder des Beirates verlangt wird. 7. Der Erlass tritt am 14. Oktober 1992 in Kraft. Dresden, den 14. Oktober 1992
+
+Der Staatsminister 
+           für Soziales, Gesundheit und Familie 
+           Dr. Hans Geisler
+
