@@ -1,0 +1,14 @@
+requests 
+beautifulsoup4 
+html2text
+tiktoken
+tqdm
+chromadb
+langchain_text_splitters
+sentence_transformers
+dotenv
+openai
+pandas
+tqdm
+FlagEmbedding
+hf_xet
