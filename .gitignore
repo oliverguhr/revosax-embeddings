@@ -5,6 +5,8 @@ __pycache__/
 events.out*
 .DS_Store
 
+training/models
+
 # C extensions
 *.so
 
