@@ -13,3 +13,4 @@ tqdm
 FlagEmbedding
 hf_xet
 tensorboardX
+standard-imghdr
